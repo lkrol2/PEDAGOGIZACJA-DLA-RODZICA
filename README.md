@@ -2,7 +2,7 @@
 =========================
 ####"Rodzice jako pierwsi nauczyciele swoich dzieci ponoszą szczególną odpowiedzialność za ich edukację, zaś edukacja szkolna ma wspierać domową, nie ją zastępować.".
 ######frag. Statutu Europejskiego Stowarzyszenia Rodziców
-
+![Rodzice] (http://www.zs.gromnik.pl/publikacje/images/stories/f_w_15688_62e90.jpg)
 ### I. Forma współpracy szkoły ze środowiskiem rodzinnym.
 
   1. Rodzina stanowi naturalne środowisko wychowawcze dzieci i młodzieży,integralną część każdego społeczeństwa, stanowi jego najmniejszą, a zarazem podstawową komórkę. Wychowawczej działalności rodziny nie jest w stanie zastąpić żadne inne środowisko ze względu na typ więzi łączących z rodziną.W momencie rozpoczęcia edukacji szkolnej na dziecko oddziałują dwa podstawowe środowiska wychowawcze: rodzina i szkoła mające decydujący wpływ na prawidłowy rozwój jego osoby, w związku z czym bardzo ważna jest właściwa współpraca pomiędzy nimi. Przeciętnemu rodzicowi trudno jest włączyć się w proces edukacji dziecka, bez ścisłej współpracy z nauczycielem, to szkoła powinna wychodzić z pomocą rodzicom włączając ich w różne formy pracy. Zadaniem nauczycieli jest wspólne poszukiwanie najbardziej efektywnych form, aby za ich pomocą włączyć rodziców w pracę na rzecz klasy i szkoły. Wspólnym celem zarówno nauczycieli jak i rodziców jest szeroko pojęte dobro dziecka- dbałość o jego prawidłowy i harmonijny rozwój. Rodzice przekonani o dobrej woli ze strony wychowawcy sami będą dążyć do współpracy. Należy podkreślić, że za współpracę odpowiedzialność ponoszą obie strony, ponieważ są partnerami w realizowaniu zadań związanych z wychowaniem dziecka.   
