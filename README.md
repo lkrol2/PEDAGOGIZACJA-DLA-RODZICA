@@ -1,5 +1,7 @@
 ##PEDAGOGIZACJA-DLA-RODZICA##
 =========================
+####"Rodzice jako pierwsi nauczyciele swoich dzieci ponoszą szczególną odpowiedzialność za ich edukację, zaś edukacja szkolna ma wspierać domową, nie ją zastępować.".
+######frag. Statutu Europejskiego Stowarzyszenia Rodziców
 
 ### I. Forma współpracy szkoły ze środowiskiem rodzinnym.
 
@@ -110,37 +112,52 @@
 Strategie (działania) informacyjne- pedagogizacja
 
 ### V. Spotkania z rodzicami.
-Jednym ze sposobów jest organizowanie częstych i w różnych formach (dyskusje, pogadanki, wykłady, warsztaty ) spotkań z rodzicami na zasadzie partnerstwa, w celu poszerzenia świadomości o prawach rozwojowych i sposobach oddziaływania na dziecko. Spotkania te pozwalają na bliższe poznanie się, omówienie drażliwych tematów, wspólne szukanie rozwiązań, dzielenie się swoimi doświadczeniami i korzystanie z literatury bądź wiedzy fachowców - psychologa, pedagoga, lekarza itp. stotnym elementem spotkań jest wyzwolenie  i wykorzystanie siły twórczej drzemiącej w rodzicach (ich pomysłów, rad, entuzjazmu, bądź zniechęcenia, zdolności, doświadczeń życiowych), a wszystko po to, by stworzyć dziecku lepsze warunki rozwoju psychicznego, fizycznego i duchowego-nauczycielowi poczucie dobrze spełnionego obowiązku wobec dzieci. Zauważa to M. Łobocki pisząc: „Zdarza się często, że nauczyciele nie zabiegają nawet o poznanie twórczych możliwości rodziców. Ci ostatni zaś nie zawsze orientują się, że mogliby być pożyteczni dla szkoły i domu”. Starajmy się więc wykorzystywać „potencjał” tkwiący w naszych rodzicach. 
+Jednym ze sposobów jest organizowanie częstych i w różnych formach (dyskusje, pogadanki, wykłady, warsztaty ) spotkań z rodzicami na zasadzie partnerstwa, w celu poszerzenia świadomości o prawach rozwojowych i sposobach oddziaływania na dziecko. Spotkania te pozwalają na bliższe poznanie się, omówienie drażliwych tematów, wspólne szukanie rozwiązań, dzielenie się swoimi doświadczeniami i korzystanie z literatury bądź wiedzy fachowców - psychologa, pedagoga, lekarza itp. stotnym elementem spotkań jest wyzwolenie  i wykorzystanie siły twórczej drzemiącej w rodzicach (ich pomysłów, rad, entuzjazmu, bądź zniechęcenia, zdolności, doświadczeń życiowych), a wszystko po to, by stworzyć dziecku lepsze warunki rozwoju psychicznego, fizycznego i duchowego-nauczycielowi poczucie dobrze spełnionego obowiązku wobec dzieci. 
+
+Zauważa to M. Łobocki pisząc: 
+######„Zdarza się często, że nauczyciele nie zabiegają nawet o poznanie twórczych możliwości rodziców. Ci ostatni zaś nie zawsze orientują się, że mogliby być pożyteczni dla szkoły i domu”. 
+Starajmy się więc wykorzystywać „potencjał” tkwiący w naszych rodzicach. 
 Pedagogizacja rodziców musi być prowadzona z dużym taktem. Mamy bowiem do czynienia z osobami dorosłymi, które posiadają własne doświadczenie życiowe, w tym także wychowawcze, mają utrwalone poglądy i postawy. Rodzice reprezentują różny poziom kulturalny, moralny i intelektualny.
     
 #### Jakie tematy należy zatem wybrać na spotkania z rodzicami?
 Na pewno omawiające rozwój psychofizyczny dziecka, jego potrzeby, zainteresowania, problemy, kłopoty. Niekiedy sam proces dydaktyczno-wychowawczy w szkole podsuwa nam pewne propozycje. Najważniejsze, aby tematy były aktualne, zgodne z potrzebami rodziców i przydatne.
-Oto przykładowe tematy:
-•	Rola środowiska rodzinnego i szkoły w rozwoju dziecka
-•	Cech i właściwości dziecka w okresie wczesnoszkolnym
-•	Praca domowa ucznia
-•	Trudności dziecka w nauce i sposoby przezwyciężania
-•	Gdy dziecko sprawia kłopoty wychowawcze
-•	Rola mediów w wychowaniu dziecka
-•	Racjonalny rozkład dnia: właściwe proporcje między nauką i zabawą; formy organizacji czasu wolnego
-•	Nawyki higieniczne dziecka
+
+#######Oto przykładowe tematy:
+•	Rola środowiska rodzinnego i szkoły w rozwoju dziecka.
+
+•	Cech i właściwości dziecka w okresie wczesnoszkolnym.
+
+•	Praca domowa ucznia.
+
+•	Trudności dziecka w nauce i sposoby przezwyciężania.
+
+•	Gdy dziecko sprawia kłopoty wychowawcze.
+
+•	Rola mediów w wychowaniu dziecka.
+
+•	Racjonalny rozkład dnia: właściwe proporcje między nauką i zabawą; formy organizacji czasu wolnego.
+
+•	Nawyki higieniczne dziecka.
+
 •	Postawy wychowawcze rodziców i nauczycieli itp.
-    Znaczącą rolę w tego typu spotkaniach odgrywa stworzenie odpowiedniej -kameralnej, rodzinnej atmosfery (przygotowanie sali- ustawienie krzeseł i stolików w formie koła lub kwadratu, aby zachowany został kontakt wzrokowy, wspólne przygotowanie herbaty czy kawy..) oraz ustalenie pewnych zasad, które będą obowiązywać na tych spotkaniach np.
+
+Znaczącą rolę w tego typu spotkaniach odgrywa stworzenie odpowiedniej -kameralnej, rodzinnej atmosfery (przygotowanie sali- ustawienie krzeseł i stolików w formie koła lub kwadratu, aby zachowany został kontakt wzrokowy, wspólne przygotowanie herbaty czy kawy..) oraz ustalenie pewnych zasad, które będą obowiązywać na tych spotkaniach np.
           
-- wszystkie sprawy  nie dotyczące naszych dzieci, nas i szkoły zostawiamy 
-  w domu;
-- omawiane problemy (czasem osobiste) zostawiamy  dla siebie, chyba że  
-  zostanie podjęta decyzja o nagłośnieniu danej sprawy;
+- wszystkie sprawy  nie dotyczące naszych dzieci, nas i szkoły zostawiamy w domu;
+
+- omawiane problemy (czasem osobiste) zostawiamy  dla siebie, chyba że zostanie podjęta decyzja o nagłośnieniu danej sprawy;
+
 - mówimy za siebie;
+
 - dajemy sobie prawo do ustalenia zasad w trakcie spotkań;
+
     Aby spotkanie było inspirujące dla rodziców i nauczyciela, ważne jest odpowiednie przygotowanie się wychowawcy, który znając problemy i sprawy uczniów w swojej klasie jest w stanie przewidzieć część pytań, czy kwestii nurtujących rodziców i ich dzieci.
 
-W jaki sposób rozmawiać z rodzicami ?
+### W jaki sposób rozmawiać z rodzicami ?
 
 •	mów krótko, na temat, bez zbytnich dygresji, z wyczuciem i kulturą języka, wiąż pojęcia i terminy tak, aby wyjaśniały myśl przewodnią
 
-Czego się wystrzegać w rozmowach z rodzicami?
-
+### Czego się wystrzegać w rozmowach z rodzicami?
 
 •	udzielania rad i wskazówek w formie pouczeń, gotowych rozwiązań;
 •	toczenia sporów;
@@ -183,12 +200,12 @@ Rady na temat organizacji warsztatów
 
 Przydatne linki [PEDAGOGIZACJA RODZICÓW][1]
 [1]: http://edukator.edux.pl/pedagogizacja-rodzicow.php
+[2]: 
 
 
 
 
-
-  ##### inne materiały: #####
+##### inne materiały: #####
 # Agresja 
 
 ####1. Co rodzice powinni wiedzieć o agresji.
