@@ -12,6 +12,7 @@ Przemoc i agresja istniały zawsze, są one częścią kultury, składnikiem sto
 O dynamie zjawiska agresji i przemocy w najbliższej przyszłości będą decydowały postawy młodzieży. To od Was rodzice w największym stopniu zależy jaką będziemy mieli młodzież!
 
 #### 1. Przyczyny zachowań agresywnych:
+![agresja] (http://szkolnedziecko.pl/wp-content/uploads/2009/11/agresja-slowna.png)
 
 - odwzorowanie zachowań rodziców(brak czasu dla dziecka, zaabsorbowanie pracą, preferowanie konsumpcyjnego modelu życia).
 - poczucie zagrożenia, frustracji i napięcia, poczucie krzywdy.
@@ -118,6 +119,8 @@ Jeśli dom funkcjonuje prawidłowo i od strony wychowawczej i emocjonalnej, to d
 
 Najważniejszym czynnikiem profilaktycznym przeciwko agresji jest właściwa więź emocjonalna rodziców z dzieckiem.
 Trudno obdarzać uczuciem dziecko agresywne. Lecz miłość rodziców powinna być bezwzględna, by dziecko czuło tę atmosferę bezpieczeństwa, by nie podejmowało decyzji ze strachu przed konsekwencjami, lecz z pragnienia aby odwzajemnić uczucie temu, kto go kocha bezwarunkowo , bowiem agresywne zachowanie młodego człowieka wynika z założenia, że nikt go nie kocha.
+![agresja] (https://www.kampaniespoleczne.pl/images/zdjecia/30/zdjecie_20080406171833_751.jpg)
+
 
 ##### 4. GDZIE SZUKAĆ POMOCY:
 -	Gminne Ośrodki Pomocy Społecznej
@@ -144,6 +147,8 @@ Trudno obdarzać uczuciem dziecko agresywne. Lecz miłość rodziców powinna by
 [3]: (http://pedagogika-psychologia.blog.pl/2013/04/16/agresja/)
 [Szkolne Dziecko - Agresja][4]
 [4]: http://szkolnedziecko.pl/tag/agresja-slowna/
+[Kampania społeczna][5]
+[5]: https://www.kampaniespoleczne.pl/kampanie,147,agresja_zabija
 
 
 
