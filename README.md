@@ -199,8 +199,11 @@ Rady na temat organizacji warsztatów
 •	dokonaj ewaluacji, powróć do omawianych zagadnień na następnym zebraniu – w formie, jaką uznasz za przydatną;
 
 
-Przydatne linki [PEDAGOGIZACJA RODZICÓW][1]
+Przydatne linki 
+[PEDAGOGIZACJA RODZICÓW][1]
 [1]: http://edukator.edux.pl/pedagogizacja-rodzicow.php
+[POMOCE DYDAKTYCZNE][11]
+[11]: http://pomocedydaktyczne.info/index.php?main_page=index&cPath=39_292_567
 
 ##### inne materiały: #####
 [Agresja][2]
