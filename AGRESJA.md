@@ -5,6 +5,7 @@
 ###I. Co rodzice powinni wiedzieć o agresji.
 
 #####„Takie będą losy Rzeczpospolitej jakie jej młodzieży chowanie.”
+![Agresja] (http://th.interia.pl/11,b8a852f691276150/stop_przemocy.jpg)
 
 Rodzina jest podstawową komórką społeczną i od jej funkcjonowania zależy wartość społeczeństwa, a także osobisty los jednostki.W rodzinie człowiek przeżywa najpoważniejszy okres, w którym kształtuje się jego osobowość, styl życia, preferowanie wartości i poglądy na świat.
 Przemoc i agresja istniały zawsze, są one częścią kultury, składnikiem stosunków międzyludzkich, nierozłącznym elementem dziejów historii. Przemoc upokarza , powoduje cierpienie i nieobliczalne szkody, rodzi nienawiść i pragnienie odwetu, tworzy błędne koło w stosunkach międzyludzkich i wcześniej, czy później odbije się negatywnie na osobowości i zachowaniu człowieka. Coraz częściej słyszy się i mówi o agresji i przemocy. Docierające do nas codziennie informacje o morderstwach, aktach terrorystycznych, rozbojach, gwałtach, agresji w polityce, gospodarce, w filmie, sporcie. Coraz częściej słyszy się również wulgarne słownictwo-w niektórych kręgach kulturowych staje się ono normą.
@@ -78,6 +79,7 @@ Szkoła również może być źródłem agresji dla młodego człowieka. Uczeń,
 Uczeń może polubić szkołę wówczas, kiedy zaspokaja w niej swoje potrzeby, nie jest zagrożony upokorzeniem ze strony nauczyciela, kiedy wymaga się od niego tyle na ile go stać. Łatwo wtedy o dobre samopoczucie, radość ze współżycia z kolegami, zadowolenie z własnych osiągnięć. Zachowanie dziecka w szkole wiąże się mocno z atmosferą panującą w domu i odwrotnie. Dlatego szkoła powinna być w stałym kontakcie z rodzicami, opiekunami i interesować się warunkami ucznia w domu – w miarę możliwości pomagać mu.Rodzice powinni również  interesować się szkołą.
 
 ### III. UWAGA!! MEDIA - magiczna siła kształtująca postawy i zachowania dzieci i młodzieży:
+![media] (http://www.gry-online.pl/galeria/wiadomosci/235570500.jpg)
 -	utożsamianie się z bohaterami, naśladowanie, 
 -	brak współczucia dla ludzi, oschłość, brak litości, poczucia winy, aż w końcu niezdolność do miłości,
 -	strach przed agresją może osłabić pozytywne reakcje ludzkie,
@@ -95,7 +97,7 @@ Jeśli dom funkcjonuje prawidłowo i od strony wychowawczej i emocjonalnej, to d
 -	zainteresowanie sprawami dziecka, ucznia, aktywne słuchanie (kontakt wzrokowy, uśmiech, spokój i opanowanie w reakcjach, parafrazowanie, kontakt przez dotyk, atmosfera akceptacji i zrozumienie)
 
 ##### 3. Sposoby radzenia sobie z agresją 
-
+![agresja] (http://przystaneklegionowo.blox.pl/resource/sposobynaagresje.jpg)
 ###### DORAŹNE:
 
 -	nie karać, nie grozić
@@ -140,6 +142,8 @@ Trudno obdarzać uczuciem dziecko agresywne. Lecz miłość rodziców powinna by
 ##### 6. Przydatne linki:
 [Agresja][3]
 [3]: (http://pedagogika-psychologia.blog.pl/2013/04/16/agresja/)
+[Szkolne Dziecko - Agresja][4]
+[4]: http://szkolnedziecko.pl/tag/agresja-slowna/
 
 
 
