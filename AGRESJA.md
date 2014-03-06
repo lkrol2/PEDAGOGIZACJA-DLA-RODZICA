@@ -1,34 +1,36 @@
-####1. Co rodzice powinni wiedzieć o agresji.
+## AGRESJA - mteriały dla nauczycieli i rodziców
 
-„Takie będą losy Rzeczpospolitej jakie jej młodzieży chowanie.”
+###I. Co rodzice powinni wiedzieć o agresji.
+
+#####„Takie będą losy Rzeczpospolitej jakie jej młodzieży chowanie.”
 
 Rodzina jest podstawową komórką społeczną i od jej funkcjonowania zależy wartość społeczeństwa, a także osobisty los jednostki.W rodzinie człowiek przeżywa najpoważniejszy okres, w którym kształtuje się jego osobowość, styl życia, preferowanie wartości i poglądy na świat.
 Przemoc i agresja istniały zawsze, są one częścią kultury, składnikiem stosunków międzyludzkich, nierozłącznym elementem dziejów historii. Przemoc upokarza , powoduje cierpienie i nieobliczalne szkody, rodzi nienawiść i pragnienie odwetu, tworzy błędne koło w stosunkach międzyludzkich i wcześniej, czy później odbije się negatywnie na osobowości i zachowaniu człowieka. Coraz częściej słyszy się i mówi o agresji i przemocy. Docierające do nas codziennie informacje o morderstwach, aktach terrorystycznych, rozbojach, gwałtach, agresji w polityce, gospodarce, w filmie, sporcie. Coraz częściej słyszy się również wulgarne słownictwo-w niektórych kręgach kulturowych staje się ono normą.
 O dynamie zjawiska agresji i przemocy w najbliższej przyszłości będą decydowały postawy młodzieży. To od Was rodzice w największym stopniu zależy jaką będziemy mieli młodzież!
 
-Przyczyny zachowań agresywnych:
+#### 1. Przyczyny zachowań agresywnych:
 
-1.	odwzorowanie zachowań rodziców(brak czasu dla dziecka, zaabsorbowanie pracą, preferowanie konsumpcyjnego modelu życia).
-2.	poczucie zagrożenia, frustracji i napięcia, poczucie krzywdy.
-3.	nieprawidłowa osobowość( niedorozwój, choroby psychiczne).
+- odwzorowanie zachowań rodziców(brak czasu dla dziecka, zaabsorbowanie pracą, preferowanie konsumpcyjnego modelu życia).
+- poczucie zagrożenia, frustracji i napięcia, poczucie krzywdy.
+- nieprawidłowa osobowość( niedorozwój, choroby psychiczne).
 
-Etapy agresji i zachowań agresywnych.
+#### 2. Etapy agresji i zachowań agresywnych.
 
 I Etap
-1.	dziecko rodzi się z trudnym temperamentem.
-2.	pojawiają się objawy niedostosowania na etapie przedszkola.
-3.	występuje nadmierna pobudliwość.
+-	dziecko rodzi się z trudnym temperamentem.
+-	pojawiają się objawy niedostosowania na etapie przedszkola.
+-	występuje nadmierna pobudliwość.
 
 II Etap
-1.	dziecko reaguje agresją na każdy konflikt- na problemy w sferze zachowań,     albo
-2.	wycofuje się
-3.	nie potrafi budować więzi z rówieśnikami
-4.	pojawiają się problemy w nauce połączone z niskim poczuciem wartości i depresja
+- dziecko reaguje agresją na każdy konflikt- na problemy w sferze zachowań, albo wycofuje się.
+- nie potrafi budować więzi z rówieśnikami.
+- pojawiają się problemy w nauce połączone z niskim poczuciem wartości i depresja.
+
 III Etap
-1.	ukrywa lub przemilcza nowe problemy zachowań – wagary, kłamstwo, kradzież
-2.	przyłącza się do przestępczej grupy młodzieżowej lub sekty
-3.	bierze udział w wykroczeniach, staje przed sądem dla nieletnich
-4.	staje się recydywistą
+- ukrywa lub przemilcza nowe problemy zachowań – wagary, kłamstwo, kradzież.
+- przyłącza się do przestępczej grupy młodzieżowej lub sekty.
+- bierze udział w wykroczeniach, staje przed sądem dla nieletnich.
+- staje się recydywistą.
 
 W obecnej rzeczywistości młodzież nie ma zbyt dużych możliwości rozładowania swojej aktywności w sposób akceptowany społecznie. Wielu młodych ludzi nie otrzymuje odpowiedniego wsparcia ani w rodzinie, ani w szkole. Często jedynym miejscem, gdzie mogą otrzymać wsparcie i uznanie są grupy rówieśnicze, niejednokrotnie grupy przestępcze.
 Kluby sportowe i inne miejsca aktywności są zazwyczaj mało dostępne, nieraz wiąże się to z ograniczonymi finansami.
@@ -37,32 +39,32 @@ Zdarza się, że nastolatki szukają życzliwości i zrozumienia w grupie rówie
 Chłód emocjonalny i błędy  wychowawcze sprawiają, że w zasobnych, pozornie dobrych domach wyrastają ludzie agresywni i okrutni. Coraz gorzej radzą sobie dorośli z przekazywaniem młodemu pokoleniu  pozytywnego systemu wartości!
 Bezrobocie najczęściej dotyka młodych ludzi. Poczucie bezradności i apatii, spadek poczucia własnej wartości, pomimo posiadania umiejętności i możliwości to najczęstsze reakcje młodych na brak pracy. Propagowany przez reklamę materialistyczny model życia dodatkowo pogłębia rozczarowanie i frustrację. Może taka sytuacja doprowadzić do tragicznych w skutkach wydarzeń.. Przykładem historycznym: narodziny faszyzmu. Priorytetowym zadaniem rządu powinna być walka z bezrobociem.
 
-Autorytety negatywne
+### II. Autorytety negatywne
 
 Jednym z podstawowych sposobów, dzięki którym uczymy się nowych zachowań jest obserwacja. I to właśnie ona jest głównym źródłem przemocy. Najbardziej skutecznymi modelami (zarówno pozytywnymi, jak i negatywnymi) są osoby dorosłe, o wysokim statusie, które dysponują możliwością nagradzania. Jeżeli dorosłe osoby zawsze karzą dziecko za agresywne zachowanie, gdy tylko je zauważą, to wówczas dziecko nauczy się hamować agresję w obecności dorosłych, ale będzie ją wykazywało w innych sytuacjach.
-PARADOKS!!  Ci rodzice, którzy karzą fizycznie lub psychicznie dziecko za agresję, modelują i kształtują  te właśnie zachowania, które starają się wyeliminować. Jeżeli mówimy małemu chłopcu, aby „był mężczyzną” i „umiał zrobić pożytek ze swoich pięści” uczymy go i zachęcamy do przemocy w stosunku do innych. Nie tylko wybaczamy zachowanie agresywne, ale wymagamy go, a nawet nagradzamy.
-Dostarczając przez szersze środowisko kulturowe, media, film, gry komputerowe wielu agresywnych modeli oraz darząc aprobatą akty przemocy, społeczeństwo może wywierać duży nacisk na młodych ludzi aby dostosować się do normy agresywności. Osłabiły się mechanizmy kontroli społecznej nad tymi procesami. Zatarły się kryteria dobra i zła, prawa i bezprawia. Zjawiska te rodzą silne konflikty. Zagrożenie poczucia godności u pozostających bez pracy nie z własnej winy, popadanie w niedostatek, brak perspektyw, rodzą głęboką frustrację a nawet rozpacz.
+#####PARADOKS!!!  
+Ci rodzice, którzy karzą fizycznie lub psychicznie dziecko za agresję, modelują i kształtują  te właśnie zachowania, które starają się wyeliminować. Jeżeli mówimy małemu chłopcu, aby „był mężczyzną” i „umiał zrobić pożytek ze swoich pięści” uczymy go i zachęcamy do przemocy w stosunku do innych. Nie tylko wybaczamy zachowanie agresywne, ale wymagamy go, a nawet nagradzamy.Dostarczając przez szersze środowisko kulturowe, media, film, gry komputerowe wielu agresywnych modeli oraz darząc aprobatą akty przemocy, społeczeństwo może wywierać duży nacisk na młodych ludzi aby dostosować się do normy agresywności. Osłabiły się mechanizmy kontroli społecznej nad tymi procesami. Zatarły się kryteria dobra i zła, prawa i bezprawia. Zjawiska te rodzą silne konflikty. Zagrożenie poczucia godności u pozostających bez pracy nie z własnej winy, popadanie w niedostatek, brak perspektyw, rodzą głęboką frustrację a nawet rozpacz.
 
-Niewłaściwe postawy rodzicielskie: 
+##### 1. Niewłaściwe postawy rodzicielskie: 
 
-1.	odtrącająca- dyktatorskie podejście, kierowanie dzieckiem poprzez rozkazy, surowe kary, dezaprobata, otwarta krytyka, zastraszanie, brutalna przemoc
-2.	unikająca- luźny kontakt emocjonalny przy jednoczesnym obdarowywaniu prezentami, ignorowanie, nie angażowanie się w sprawy dziecka
-3.	nadmiernie wymagająca- stawianie wygórowanych wymagań, narzucanie autorytetu, ograniczanie swobody, zmuszanie, częste nagany.
-4.	nadmiernie chroniąca- nadopiekuńczość, niedocenienie możliwości dziecka, rozwiązywanie za dziecko problemów, uzależnienie dziecka od siebie, przy jednoczesnym tolerowaniu zachcianek, niewłaściwych zachowań dziecka, zaspokajania kaprysów i umożliwianiu panowania nad rodziną.
+- odtrącająca- dyktatorskie podejście, kierowanie dzieckiem poprzez rozkazy, surowe kary, dezaprobata, otwarta krytyka, zastraszanie, brutalna przemoc.
+- unikająca- luźny kontakt emocjonalny przy jednoczesnym obdarowywaniu prezentami, ignorowanie, nie angażowanie się w sprawy dziecka.
+- nadmiernie wymagająca- stawianie wygórowanych wymagań, narzucanie autorytetu, ograniczanie swobody, zmuszanie, częste nagany.
+- nadmiernie chroniąca- nadopiekuńczość, niedocenienie możliwości dziecka, rozwiązywanie za dziecko problemów, uzależnienie dziecka od siebie, przy jednoczesnym tolerowaniu zachcianek, niewłaściwych zachowań dziecka, zaspokajania kaprysów i umożliwianiu panowania nad rodziną.
 
-Skutki niewłaściwego postępowania rodziców:
+##### 2. Skutki niewłaściwego postępowania rodziców:
 
-1.	Dziecko odtrącone nie ma nic lub bardzo niewiele do zyskania poprzez opanowanie gniewu i agresji wywołanej frustracją. Jego agresja przynosi mu przynajmniej tymczasową ulgę i może zmusić innych, by się nim zajęli.
-2.	Rodzice, którzy porównują swoje dzieci do rodzeństwa lub do kolegów, wykazując, że oni robią coś lepiej, staranniej, niszczą w dziecku dobry obraz samego siebie, a wywołują urazy, zawiść i agresję. Broniąc się przed negatywnym porównaniem, dziecko złości się, niszczy przedmioty lub atakuje inne osoby, najczęściej słabsze.
-3.	Kary fizyczne przyczyniają się do utrwalenia niepożądanego zachowania. Bicie dziecka przez osobę kochaną wytwarza w nim przekonanie, że jeśli coś jest ważne dla człowieka to może on użyć siły fizycznej. Model takiej agresywnej rodziny przenoszony jest na inne sytuacje(szkołę, podwórko, pracę) czy stosowany przez całe życie w swej własnej rodzinie.
-4.	Dzieci bez wsparcia emocjonalnego próbują zwrócić na siebie uwagę zachowując się agresywnie, wyzywając, niszcząc, kradnąc, uciekając z domu (rozwód rodziców).
-5.	Każde upokorzenie dziecka jest formą przemocy emocjonalnej (są to: groźby, ostrzeżenia, wrzaski i przekleństwa, wyzwiska, poniżanie godności, np. wyrzucę cię z domu, pójdziesz do poprawczaka)
-6.	Maltretowanie psychiczne nie pozostawia śladów na ciele, ale wywołuje negatywne przeżycia: strach, obawę, poczucie niesprawiedliwości, mniejszej wartości, świadomości braku miłości rodziców i budzi chęć zemsty.
+- Dziecko odtrącone nie ma nic lub bardzo niewiele do zyskania poprzez opanowanie gniewu i agresji wywołanej frustracją. Jego agresja przynosi mu przynajmniej tymczasową ulgę i może zmusić innych, by się nim zajęli.
+- Rodzice, którzy porównują swoje dzieci do rodzeństwa lub do kolegów, wykazując, że oni robią coś lepiej, staranniej, niszczą w dziecku dobry obraz samego siebie, a wywołują urazy, zawiść i agresję. Broniąc się przed negatywnym porównaniem, dziecko złości się, niszczy przedmioty lub atakuje inne osoby, najczęściej słabsze.
+- Kary fizyczne przyczyniają się do utrwalenia niepożądanego zachowania. Bicie dziecka przez osobę kochaną wytwarza w nim przekonanie, że jeśli coś jest ważne dla człowieka to może on użyć siły fizycznej. Model takiej agresywnej rodziny przenoszony jest na inne sytuacje(szkołę, podwórko, pracę) czy stosowany przez całe życie w swej własnej rodzinie.
+- Dzieci bez wsparcia emocjonalnego próbują zwrócić na siebie uwagę zachowując się agresywnie, wyzywając, niszcząc, kradnąc, uciekając z domu (rozwód rodziców).
+- Każde upokorzenie dziecka jest formą przemocy emocjonalnej (są to: groźby, ostrzeżenia, wrzaski i przekleństwa, wyzwiska, poniżanie godności, np. wyrzucę cię z domu, pójdziesz do poprawczaka)
+- Maltretowanie psychiczne nie pozostawia śladów na ciele, ale wywołuje negatywne przeżycia: strach, obawę, poczucie niesprawiedliwości, mniejszej wartości, świadomości braku miłości rodziców i budzi chęć zemsty.
 
 Nie wszystkie dzieci reagują agresją. Niektóre przyjmują postawę wycofującą się i depresyjną. Są zamknięte w sobie, nie nawiązują kontaktów z otoczeniem, żyją w swoim zamkniętym świecie. Mogą w nich wystąpić zaburzenia mowy, zaburzenia snu, tiki lub inne dolegliwości.
 
-Przez obserwację przemocy, dziecko zdobywa wiedzę, że przemoc istnieje i jak się ją wykorzystuje.
-Czynniki  zwiększające prawdopodobieństwo, że młody człowiek stanie się ofiarą lub sprawcą przemocy związane są z:
+###### Przez obserwację przemocy, dziecko zdobywa wiedzę, że przemoc istnieje i jak się ją wykorzystuje. Czynniki  zwiększające prawdopodobieństwo, że młody człowiek stanie się ofiarą lub sprawcą przemocy związane są z:
+
 -	rodziną,
 -	środowiskiem- przemoc stosowana przez osobę lubianą, środki odurzające stosowane w środowisku, stres, odrzucenie,
 -	zachowaniem- ucieczki z domu, kłopoty w domu i w szkole, stosowanie środków odurzających, problemy prawne,
