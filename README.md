@@ -229,6 +229,7 @@ Przydatne linki
 [10]: http://pedagogika-psychologia.blog.pl/2013/07/02/zaburzenia-funkcjonowania-w-zyciu-zaburzenia-psychiczne/
 [Psychologia Społeczna][11]
 [11]: http://pedagogika-psychologia.blog.pl/2013/07/03/psychologia-spoleczna-wedlug-rathusa/
-
+[Seksualność Dziecka][12]
+[12]: http://pedagogika-psychologia.blog.pl/2013/07/04/plec-i-seksualnosc-wedlug-rathusa/
 
 
