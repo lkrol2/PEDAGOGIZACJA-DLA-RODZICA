@@ -227,6 +227,8 @@ Przydatne linki
 [9]: http://pedagogika-psychologia.blog.pl/2013/05/02/kryteria-i-bariery-funkcjonowania-czlowieka/
 [Zaburzenia psychiczne][10]
 [10]: http://pedagogika-psychologia.blog.pl/2013/07/02/zaburzenia-funkcjonowania-w-zyciu-zaburzenia-psychiczne/
+[Psychologia Społeczna][11]
+[11]: http://pedagogika-psychologia.blog.pl/2013/07/03/psychologia-spoleczna-wedlug-rathusa/
 
 
 
