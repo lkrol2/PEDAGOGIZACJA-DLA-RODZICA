@@ -201,12 +201,14 @@ Rady na temat organizacji warsztatów
 
 Przydatne linki [PEDAGOGIZACJA RODZICÓW][1][2] 
 [1]: http://edukator.edux.pl/pedagogizacja-rodzicow.php
-[2]: http://pedagogika-psychologia.blog.pl/2013/05/31/szkola-w-socjologii-edukacji/
-[3]: http://pedagogika-psychologia.blog.pl/2013/06/19/komunikacja-w-szkole/
-[4]: http://pedagogika-psychologia.blog.pl/2013/04/12/integracja/
-
 
 ##### inne materiały: #####
 [Agresja][2]
 [2]:https://github.com/lkrol2/PEDAGOGIZACJA-DLA-RODZICA/blob/master/AGRESJA.md
+[Szkoła w socjologii edukacji][3]
+[3]: http://pedagogika-psychologia.blog.pl/2013/05/31/szkola-w-socjologii-edukacji/
+[Komunikacja w szkole][4]
+[4]: http://pedagogika-psychologia.blog.pl/2013/06/19/komunikacja-w-szkole/
+[Integracja][5]
+[5]: http://pedagogika-psychologia.blog.pl/2013/04/12/integracja/
 
