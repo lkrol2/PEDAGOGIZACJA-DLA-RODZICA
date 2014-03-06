@@ -19,6 +19,7 @@ O dynamie zjawiska agresji i przemocy w najbliższej przyszłości będą decydo
 - nieprawidłowa osobowość( niedorozwój, choroby psychiczne).
 
 #### 2. Etapy agresji i zachowań agresywnych.
+![Agresja] (http://rebelianci.org/uimages/services/rebelianci/i18n/pl_PL/201303/1364131810_by_PierwszyWSzeregu_500.jpg?1364131810)
 
 I Etap
 -	dziecko rodzi się z trudnym temperamentem.
