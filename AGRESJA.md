@@ -93,7 +93,9 @@ Jeśli dom funkcjonuje prawidłowo i od strony wychowawczej i emocjonalnej, to d
 -	zainteresowanie sprawami dziecka, ucznia, aktywne słuchanie (kontakt wzrokowy, uśmiech, spokój i opanowanie w reakcjach, parafrazowanie, kontakt przez dotyk, atmosfera akceptacji i zrozumienie)
 
 ##### 3. Sposoby radzenia sobie z agresją 
+
 ###### DORAŹNE:
+
 -	nie karać, nie grozić
 -	grzecznie zwracać uwagę
 -	żartować
@@ -101,7 +103,9 @@ Jeśli dom funkcjonuje prawidłowo i od strony wychowawczej i emocjonalnej, to d
 -	iść na kompromis
 -	pokojowo załatwić spór
 -	omówić różnice poglądów
+
 ##### PROFILAKTYCZNE:
+
 -	informacje o normach zachowania się,
 -	uczenie autokontroli emocji, panowania nad złością (przeczekanie, odizolowanie się, spacer, rozrywka, relaks),
 -	uczenie rozpoznawania emocji,
@@ -116,10 +120,10 @@ Trudno obdarzać uczuciem dziecko agresywne. Lecz miłość rodziców powinna by
 -	Poradnie Psychologiczno- Pedagogiczne
 -	Ośrodki Pomocy Rodzinie
 -	Posterunki Policji
--	[NIebieska linia][1]: 
-[1](www.niebieska_linia.pl)
--	[Nadzieja][2]: 
-[2](www.infobiblia.nadzieja)
+-	[NIebieska linia][1] 
+[1]:(www.niebieska_linia.pl)
+-	[Nadzieja][2] 
+[2]:(www.infobiblia.nadzieja)
 
 ##### 5. Bibliografia:
 1.	Vera Birkenbihl: „Komunikacja werbalna – psychologia prowadzenia negocjacji.” Wrocław 1997
