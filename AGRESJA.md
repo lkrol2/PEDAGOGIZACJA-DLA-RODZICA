@@ -1,5 +1,7 @@
 ## AGRESJA - mteriały dla nauczycieli i rodziców
 
+![Agresja] (http://pedagogika-psychologia.blog.pl/files/2013/04/stop-przemocy-w-szkole.jpg)
+
 ###I. Co rodzice powinni wiedzieć o agresji.
 
 #####„Takie będą losy Rzeczpospolitej jakie jej młodzieży chowanie.”
