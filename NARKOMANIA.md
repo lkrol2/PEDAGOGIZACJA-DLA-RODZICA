@@ -1,5 +1,6 @@
-
 2. Narkomania - zagrożenie osobowości i życia
+3. 
+
 
 W ostatnich dziesięcioleciach w Polsce konieczne staje się podjęcie bardziej radykalnej walki ze zjawiskiem narkomanii. Siła narkotyku tkwi w mocy zawartych w nim trucizn oraz ich ujemnych oddziaływaniach na sferę fizyczną i psychiczną człowieka.
 Po wojnie narkomania nie rozprzestrzeniała się na taką skalę, jak w wielu krajach o wysokim stopniu rozwoju gospodarczego. 
@@ -135,6 +136,20 @@ Bibliografia
 30.	Wielka Encyklopedia Powszechna, Warszawa 1968. 
 31.	Witkiewicz S.L, Narkotyki - niemyte dusze. Warszawa 1979. 
 32.	Zatoński W., Przewoźniak K., Grottesman K., Zakres i następstwa zdrowotne palenia tytoniu w Polsce, W: Alkohol, narkotyki, tytoń -Skutki demograficzne w Polsce, Warszawa 1986. 
+
+
+
+linki
+
+[DDA][1]
+[1]: (http://pedagogika-psychologia.blog.pl/2013/09/10/teoretyczna-pomoc-dla-dda-cz-ii/)
+
+
+
+
+
+
+
 
 
 
@@ -609,3 +624,4 @@ Po zaobserwowaniu cech ludzi samorealizujących się, ludzi szczęśliwych z nat
 
 
 Z pewnością nie można się zmienić (nie da się tego zrealizować) w ciągu jednej nocy ale przestrzegając systematycznie powyższych zasad, możesz stopniowo dokonać pozytywnych zmian i poczuć się bardziej wolny.
+
