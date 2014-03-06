@@ -213,6 +213,16 @@ Przydatne linki [PEDAGOGIZACJA RODZICÓW][1]
 [3]: http://pedagogika-psychologia.blog.pl/2013/05/31/szkola-w-socjologii-edukacji/
 [Komunikacja w szkole][4]
 [4]: http://pedagogika-psychologia.blog.pl/2013/06/19/komunikacja-w-szkole/
-[Integracja][5]
+[Integracja cz.1][5]
 [5]: http://pedagogika-psychologia.blog.pl/2013/04/12/integracja/
+[Integracja cz.2][7]
+[7]: http://pedagogika-psychologia.blog.pl/2013/04/27/integracja-cz-2/
+[Uczeń niepełnosprawny w szkole][8]
+[8]: http://pedagogika-psychologia.blog.pl/2013/05/06/niepelnosprawnosc-jako-problem-spoleczny/
+[Kryteria i bariery w funkcjonowaniu człowieka][9]
+[9]: http://pedagogika-psychologia.blog.pl/2013/05/02/kryteria-i-bariery-funkcjonowania-czlowieka/
+[Zaburzenia psychiczne][10]
+[10]: http://pedagogika-psychologia.blog.pl/2013/07/02/zaburzenia-funkcjonowania-w-zyciu-zaburzenia-psychiczne/
+
+
 
