@@ -45,6 +45,7 @@ Chłód emocjonalny i błędy  wychowawcze sprawiają, że w zasobnych, pozornie
 Bezrobocie najczęściej dotyka młodych ludzi. Poczucie bezradności i apatii, spadek poczucia własnej wartości, pomimo posiadania umiejętności i możliwości to najczęstsze reakcje młodych na brak pracy. Propagowany przez reklamę materialistyczny model życia dodatkowo pogłębia rozczarowanie i frustrację. Może taka sytuacja doprowadzić do tragicznych w skutkach wydarzeń.. Przykładem historycznym: narodziny faszyzmu. Priorytetowym zadaniem rządu powinna być walka z bezrobociem.
 
 ### II. Autorytety negatywne
+![AGRESJA] (http://przystaneklegionowo.blox.pl/resource/bdgrzeczna.jpg)
 
 Jednym z podstawowych sposobów, dzięki którym uczymy się nowych zachowań jest obserwacja. I to właśnie ona jest głównym źródłem przemocy. Najbardziej skutecznymi modelami (zarówno pozytywnymi, jak i negatywnymi) są osoby dorosłe, o wysokim statusie, które dysponują możliwością nagradzania. Jeżeli dorosłe osoby zawsze karzą dziecko za agresywne zachowanie, gdy tylko je zauważą, to wówczas dziecko nauczy się hamować agresję w obecności dorosłych, ale będzie ją wykazywało w innych sytuacjach.
 #####PARADOKS!!!  
