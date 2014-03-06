@@ -1,5 +1,5 @@
-2. Narkomania - zagrożenie osobowości i życia
-3. 
+#### Narkomania - zagrożenie osobowości i życia
+![Help] (http://pedagogika-psychologia.blog.pl/files/2013/09/ahelpdda.jpeg)
 
 
 W ostatnich dziesięcioleciach w Polsce konieczne staje się podjęcie bardziej radykalnej walki ze zjawiskiem narkomanii. Siła narkotyku tkwi w mocy zawartych w nim trucizn oraz ich ujemnych oddziaływaniach na sferę fizyczną i psychiczną człowieka.
