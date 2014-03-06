@@ -206,7 +206,7 @@ Przydatne linki
 [POMOCE DYDAKTYCZNE][11]
 [11]: http://pomocedydaktyczne.info/index.php?main_page=index&cPath=39_292_567
 
-##### inne materiały: #####
+###### inne materiały
 [Agresja][2]
 [2]:https://github.com/lkrol2/PEDAGOGIZACJA-DLA-RODZICA/blob/master/AGRESJA.md
 [Narkomania][6]
