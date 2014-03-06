@@ -231,5 +231,8 @@ Przydatne linki
 [11]: http://pedagogika-psychologia.blog.pl/2013/07/03/psychologia-spoleczna-wedlug-rathusa/
 [Seksualność Dziecka][12]
 [12]: http://pedagogika-psychologia.blog.pl/2013/07/04/plec-i-seksualnosc-wedlug-rathusa/
+[Rozwój człowieka w ciągu życia][13]
+[13]:http://pedagogika-psychologia.blog.pl/2013/07/06/rozwoj-w-ciagu-zycia-wedlug-rathusa/
+
 
 
