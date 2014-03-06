@@ -137,4 +137,9 @@ Trudno obdarzać uczuciem dziecko agresywne. Lecz miłość rodziców powinna by
 7.	Goleman D.: „Inteligencja emocjonalna.” Poznań 1997
 8.	Mellibruda J.: ”Ja – Ty – My. Psychologiczne możliwości kontaktów międzyludzkich”. Warszawa  1998
 
+##### 6. Przydatne linki:
+[Agresja][3]
+[3]: (http://pedagogika-psychologia.blog.pl/2013/04/16/agresja/)
+
+
 
