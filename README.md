@@ -205,6 +205,10 @@ Przydatne linki [PEDAGOGIZACJA RODZICÓW][1][2]
 ##### inne materiały: #####
 [Agresja][2]
 [2]:https://github.com/lkrol2/PEDAGOGIZACJA-DLA-RODZICA/blob/master/AGRESJA.md
+[Narkomania][6]
+[6]: https://github.com/lkrol2/PEDAGOGIZACJA-DLA-RODZICA/edit/master/NARKOMANIA.md
+
+####### linki
 [Szkoła w socjologii edukacji][3]
 [3]: http://pedagogika-psychologia.blog.pl/2013/05/31/szkola-w-socjologii-edukacji/
 [Komunikacja w szkole][4]
