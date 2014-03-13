@@ -1,19 +1,27 @@
 ### Sztuka porozumiewania się z dzieckiem
 
-Niby prosta sprawa.... A jednak.... Dziecko to człowiek, który uczy się zachowania od nas dorosłych. Szuka naszej aprobaty, chce być doceniony, kochany, pragnie czuć się bezpiecznie. Dziecko to człowiek bardzo wrażliwy, którego łatwo zranić, łatwo odwrócić od siebie. Chłód emocjonalny i błędy wychowawcze sprawiają, że w zasobnych, pozornie dobrych domach wyrastają ludzie agresywni i okrutni. Coraz gorzej radzą sobie dorośli z przekazywaniem młodemu pokoleniu pozytywnego systemu wartości! W tych warunkach wychowywana młodzież pozostaje wyalienowana od norm społecznych, wartości, własnego zachowania, własnych poglądów i innych ludzi. Ci rodzice, którzy karzą fizycznie lub psychicznie dziecko za agresję, modelują i kształtują te właśnie zachowania, które starają się wyeliminować. Rodzice, którzy porównują swoje dzieci do rodzeństwa lub do kolegów, wykazując, że oni robią coś lepiej, staranniej niszczą w dziecku dobry obraz samego siebie, a wywołują urazy, zawiść i agresję. Broniąc się przed negatywnym porównaniem, dziecko złości się, niszczy przedmioty lub atakuje inne osoby, najczęściej słabsze. Kary fizyczne przyczyniają się do utrwalenia niepożądanego zachowania. Bicie dziecka przez osobę kochaną wytwarza w nim przekonanie, że jeśli coś jest ważne dla człowieka, to może on użyć siły fizycznej. Model takiej agresywnej rodziny przenoszony jest na inne sytuacje (szkoła, podwórko, praca) czy generalizowany na całe życie, a tym samym na przyszłą własną rodzinę. Każde upokorzenie dziecka jest formą przemocy emocjonalnej. Najczęstszą formą tego rodzaju przemocy są: groźby, ostrzeżenia, wrzaski i przekleństwa, wyzwiska, poniżanie godności dziecka, odmawianie mu wartości, zakłócenie prawa do intymności, izolacja, groźby wyrzucenia z domu lub wysłania do poprawczaka. Maltretowanie psychiczne nie pozostawia śladów na ciele, ale wywołuje negatywne przeżycia: strach, obawę, poczucie niesprawiedliwości, mniejszej wartości, świadomość braku miłości rodziców i budzi chęć zemsty.
-Nie wszystkie dzieci reagują agresją. Niektóre przyjmują postawę wycofującą się i depresyjną. Są zamknięte w sobie, nie nawiązują kontaktów z otoczeniem, żyją w swoim zamkniętym świecie. Mogą u nich wystąpić zaburzenia mowy, zaburzenia snu, tiki lub inne dolegliwości psychosomatyczne. Przez obserwację przemocy, dziecko zdobywa wiedzę, że przemoc istnieje i jak się ją wykorzystujeJeśli dom funkcjonuje prawidłowo i od strony wychowawczej i emocjonalnej, to dziecko w nim wychowywane jest w pewien sposób chronione przed złymi, niepożądanymi wpływami . Jak wychowywać, by wyrosły na ludzi dobrych, wrażliwych na drugiego człowieka?
-Co robić by były zadowolone z siebie, otwarte na świat, chciały go poznawać i zmieniać na lepsze?
-Co robić by umiały żyć i kochać tak, by nie ranić i nie krzywdzić innych?
+Niby prosta sprawa.... 
+A jednak.... 
+  Dziecko to człowiek, który uczy się zachowania od nas dorosłych. Szuka naszej aprobaty, chce być doceniony, kochany, pragnie czuć się bezpiecznie. Dziecko to człowiek bardzo wrażliwy, którego łatwo zranić, łatwo odwrócić od siebie. 
+  Chłód emocjonalny i błędy wychowawcze sprawiają, że w zasobnych, pozornie dobrych domach wyrastają ludzie agresywni i okrutni. Coraz gorzej radzą sobie dorośli z przekazywaniem młodemu pokoleniu pozytywnego systemu wartości! W tych warunkach wychowywana młodzież pozostaje wyalienowana od norm społecznych, wartości, własnego zachowania, własnych poglądów i innych ludzi. 
+  Ci rodzice, którzy karzą fizycznie lub psychicznie dziecko za agresję, modelują i kształtują te właśnie zachowania, które starają się wyeliminować. Rodzice, którzy porównują swoje dzieci do rodzeństwa lub do kolegów, wykazując, że oni robią coś lepiej, staranniej niszczą w dziecku dobry obraz samego siebie, a wywołują urazy, zawiść i agresję. Broniąc się przed negatywnym porównaniem, dziecko złości się, niszczy przedmioty lub atakuje inne osoby, najczęściej słabsze.
+  Kary fizyczne przyczyniają się do utrwalenia niepożądanego zachowania. Bicie dziecka przez osobę kochaną wytwarza w nim przekonanie, że jeśli coś jest ważne dla człowieka, to może on użyć siły fizycznej. Model takiej agresywnej rodziny przenoszony jest na inne sytuacje (szkoła, podwórko, praca) czy generalizowany na całe życie, a tym samym na przyszłą własną rodzinę. Każde upokorzenie dziecka jest formą przemocy emocjonalnej. Najczęstszą formą tego rodzaju przemocy są: groźby, ostrzeżenia, wrzaski i przekleństwa, wyzwiska, poniżanie godności dziecka, odmawianie mu wartości, zakłócenie prawa do intymności, izolacja, groźby wyrzucenia z domu lub wysłania do poprawczaka. Maltretowanie psychiczne nie pozostawia śladów na ciele, ale wywołuje negatywne przeżycia: strach, obawę, poczucie niesprawiedliwości, mniejszej wartości, świadomość braku miłości rodziców i budzi chęć zemsty.
+  Nie wszystkie dzieci reagują agresją. Niektóre przyjmują postawę wycofującą się i depresyjną. Są zamknięte w sobie, nie nawiązują kontaktów z otoczeniem, żyją w swoim zamkniętym świecie. Mogą u nich wystąpić zaburzenia mowy, zaburzenia snu, tiki lub inne dolegliwości psychosomatyczne. Przez obserwację przemocy, dziecko zdobywa wiedzę, że przemoc istnieje i jak się ją wykorzystujeJeśli dom funkcjonuje prawidłowo i od strony wychowawczej i emocjonalnej, to dziecko w nim wychowywane jest w pewien sposób chronione przed złymi, niepożądanymi wpływami . 
+  Jak wychowywać, by wyrosły na ludzi dobrych, wrażliwych na drugiego człowieka?
+  Co robić by były zadowolone z siebie, otwarte na świat, chciały go poznawać i zmieniać na lepsze?
+  Co robić by umiały żyć i kochać tak, by nie ranić i nie krzywdzić innych?
 
-Stwarzać możliwości samodzielnej pracy oraz samokontroli.
-Okazywać zainteresowanie sprawami dziecka poprzez:
+#### I. Stwarzać możliwości samodzielnej pracy oraz samokontroli.
+#### II. Okazywać zainteresowanie sprawami dziecka poprzez:
+
 •	Aktywne słuchanie.
 •	Kontakt wzrokowy.
 •	Uśmiech.
 •	Spokój i opanowanie w reakcjach. 
 •	Parafrazowanie.
 •	Kontakt przez dotyk.
-Stwarzać atmosferę akceptacji i zrozumienia
+#### III. Stwarzać atmosferę akceptacji i zrozumienia:
+
 Nie karać, nie grozić.
 Grzecznie zwracać uwagę.
 Żartować.
@@ -22,11 +30,15 @@ Iść na kompromis.
 Pokojowo załatwić spór.
 Omówić różnice poglądów.
 
-Uczyć dziecko asertywności i tolerancji
-Definicja:  „Asertywność” to pełne, bezpośrednie, stanowcze i spokojne wyrażanie swoich uczuć, poglądów i postaw wobec innych osób, w sposób respektujący uczucia, poglądy i postawy tych osób. 
+#### IV. Uczyć dziecko asertywności i tolerancji:
 
-Jakie mogą być rodzaje zachowań rodziców wobec dzieci:
-Zachowanie rodziców w stosunku do dzieci może być:
+##### Definicja:  „Asertywność” to pełne, bezpośrednie, stanowcze i spokojne wyrażanie swoich uczuć, poglądów i postaw wobec innych osób, w sposób respektujący uczucia, poglądy i postawy tych osób. 
+
+
+#### V. Jakie mogą być rodzaje zachowań rodziców wobec dzieci:
+
+##### Zachowanie rodziców w stosunku do dzieci może być:
+
 o	uległe (bierne) 
 o	nieasertywne (agresywne)
 o	asertywne
@@ -41,21 +53,27 @@ o	„owijać w bawełnę”,
 o	„chować się za czyimiś plecami”(np. współmałżonka),
 o	poniżać i obrażać dziecka, znęcać się fizycznie i psychicznie nad dzieckiem.
 
-Jeżeli musisz dziecku odmówić:
-o	zacznij od wyraźnego stwierdzenia „nie”,podaj krótką informację o swoich zamiarach,krótko wyjaśnij powód swojej odmowy..Odmawiając nie tłumacz się i nie usprawiedliwiaj nadmiernie 
+##### Jeżeli musisz dziecku odmówić:
+
+o	zacznij od wyraźnego stwierdzenia „nie”,podaj krótką informację o swoich zamiarach,krótko wyjaśnij powód swojej odmowy. Odmawiając nie tłumacz się i nie usprawiedliwiaj nadmiernie 
 o	nie sprawiaj wrażenia, że zmienisz zdanie,
 o	nie atakuj i nie krzycz na dziecko.
-Jeżeli denerwuje Cię zachowanie dziecka:
+
+##### Jeżeli denerwuje Cię zachowanie dziecka:
+
 etap 1: Zacznij od poinformowania dziecka o tym, co Ci przeszkadza w jego postępowaniu wobec Ciebie. Zrób to jak najszybciej, aby nie dopuścić do nagromadzenia gniewu. 
 etap 2: Jeżeli irytująca Cię sytuacja nie ulega zmianie, wyraź swoje uczucia a nawet gniew, ale bez ranienia dziecka.
 
-Jeżeli chcesz okazać dziecku uczucia pozytywne:
+##### Jeżeli chcesz okazać dziecku uczucia pozytywne:
+
 rada 1: mów w sposób otwarty i bezpośredni to co czujesz,
 rada 2: wyraź swoje uczucia w sposób osobisty,
 rada 3: używaj komunikatów typu „ja”.
+
 Komunikat typu „ja”- to informacja o moich uczuciach, myślach, zamiarach. Ja jestem podmiotem.
 
-Jak wymieniać poglądy
+##### Jak wymieniać poglądy:
+
 Jeżeli na dany temat masz inną opinię od dziecka:
 wskazówka 1: ujawnij rozbieżność opinii,
 wskazówka 2: streść krótko, ale bez złośliwości  opinię dziecka i zaprezentuj własną,
@@ -66,7 +84,8 @@ wskazówka 4: wymień poglądy, pamiętając o tolerancyjnym podejściu do inneg
 •	nie atakuj dziecka za jego poglądy, lecz koncentruj się na problemie.
 Nie ma gotowej „recepty” na dobre wychowanie dzieci, bo każde dziecko jest inne.
 
-Warto jednak pamiętać o tym, aby:
+##### Warto jednak pamiętać o tym, aby:
+
 •	Szanować dziecko i wymagać szacunku dla innych.
 •	Codziennie spędzać trochę czasu ze swoim dzieckiem.
 •	Nie gderać zbyt często.
@@ -79,17 +98,19 @@ Warto jednak pamiętać o tym, aby:
 •	Dawać dziecku czas do namysłu, kiedy ma się do czegoś ustosunkować.
 •	Nie ranić poczucia  własnej wartości dziecka mówiąc, że jest złe lub głupie, bo zły lub głupi może być tylko jego uczynek.
 
-Jeżeli traktujesz swoje dziecko jak własność lub niewolnika, nie zdziw się kiedy zobaczysz, że tak samo traktuje innych.
+###### Jeżeli traktujesz swoje dziecko jak własność lub niewolnika, nie zdziw się kiedy zobaczysz, że tak samo traktuje innych.
 
-5. Pozytywne myślenie drogą do sukcesu
+#### V. Pozytywne myślenie drogą do sukcesu:
 
  Sukces człowieka zależy nie tyle od „jakości” naszego umysłu, ile od „jakości” sposobu naszego myślenia. Co kryje się za wszelkiego rodzaju sukcesami? Badane przez psychologów kolejne przypadki ludzi sukcesu potwierdzają, iż zależą one od jakości naszego myślenia. Myśląc pozytywnie, człowiek może osiągnąć bardzo duże efekty.
+
 Dlaczego więc nie każdy myśli w ten sposób?
-Myślę, że dlatego iż nasz sposób rozumowania wypływa z naszego otoczenia w którym większość myśli negatywnie. Słyszymy takie stwierdzenia: „Co ma być to będzie.”, „Trzeba brać rzeczy takimi jakie są”, „Los człowieka jest z góry przesądzony”, „Lepiej wyzbyć się marzeń o lepszym życiu.”
-Źle jest myśleć w ten sposób. Nie powinniśmy kierować w życiu tym co mierne i przeciętne, lecz czerpać z mądrości wielkich myślicieli. Oto jedna z prawd: „Człowiek jest taki, jakim się w głębi serca czuje”. Albo słowa Williama Szekspira: „ Nic nie jest samo w sobie dobre lub złe. Dopiero myślenie takim go czyni.” 
+
+Myślę, że dlatego iż nasz sposób rozumowania wypływa z naszego otoczenia w którym większość myśli negatywnie. Słyszymy takie stwierdzenia: „Co ma być to będzie.”, „Trzeba brać rzeczy takimi jakie są”, „Los człowieka jest z góry przesądzony”, „Lepiej wyzbyć się marzeń o lepszym życiu.” Źle jest myśleć w ten sposób. Nie powinniśmy kierować w życiu tym co mierne i przeciętne, lecz czerpać z mądrości wielkich myślicieli. Oto jedna z prawd: „Człowiek jest taki, jakim się w głębi serca czuje”. Albo słowa Williama Szekspira: ##### „ Nic nie jest samo w sobie dobre lub złe. Dopiero myślenie takim go czyni.” 
 Skąd wiemy, że wielcy ludzie mieli rację? Jakie mamy na to dowody?
+
 Dowodów dostarczają nam ludzie, którzy odnieśli sukces. Poprzez myślenie pozytywne można zrealizować swoje marzenia.
-Klucze do sukcesu:
+##### Klucze do sukcesu:
 •	Otworzyć sobie siłą swej wiary drogę do sukcesu.
 •	Dzięki wierze w sukces osiągnąć powodzenie.
 •	Produkować myśli pozytywne.
@@ -117,19 +138,16 @@ Klucze do sukcesu:
 •	Wykorzystywać siłę konstruktywnej samokrytyki.
 •	Znaleźć pozytywne aspekty w każdej sytuacji.
 •	Zaplanować cele długofalowe.
-Wiara przenosi góry.
-Na sukces składa się wiele wspaniałych elementów: dobre samopoczucie, szacunek innych, zabezpieczenie finansowe, pomyślny start życiowy twoich dzieci. Sukces to wolność, a więc brak trosk, lęków rozczarowań i pomyłek; to poczucie własnej godności, szczęście i zadowolenie w życiu; to możliwość wspierania ludzi od ciebie zależnych. Sukces to wielki cel życiowy.
-Każdego dnia młodzi ludzie podejmują gdzieś swoją pierwszą pracę, podejmują wyzwania. Wszyscy pragną wznieść się na sam szczyt. Większość jednak nie ma dostatecznej wiary, która jest niezbędna, jeżeli chce się zdobyć najwyższe szczeble w hierarchii zawodowej, osiągnąć sukcesy w zdobywaniu wykształcenia. A ponieważ nie wierzą w możliwości awansu i sukcesu, pozostają ludźmi przeciętnymi.
-Niektórzy jednak mocno wierzą, że im się powiedzie. Mówią sobie: „Będę na szczycie!” i dzięki swemu niezachwianemu przekonaniu osiągają ten szczyt. Powodowani chęcią osiągnięcia celu obserwują zachowanie starszych kolegów i szefów, przyglądają się w jaki sposób ludzie sukcesu rozwiązują problemy i jak podejmują decyzje.
-Jeden z moich uczniów, nie wierzył we własne siły. Mimo, iż był uczniem zdolnym, nie osiągał takich sukcesów na jakie było go stać. W konkursach i olimpiadach przedmiotowych docierał bardzo wysoko, lecz od pełnego sukcesu zawsze dzieliło go kilka niezdobytych punktów. Uważał, że inni są od niego lepsi, i że taki chłopak ze wsi nie może się z nimi mierzyć. Trudno było przestawić go na inny sposób myślenia. Realizowany przeze mnie program wychowawczy klasy zakładał przede wszystkim kształtowanie postaw asertywnych i tolerancyjnych. W trakcie lekcji wychowawczych, wycieczek klasowych i indywidualnych rozmów przeprowadziliśmy wiele dyskusji, debat na temat postępowania w życiu, celów życiowych i ich realności. Łukasz był zainteresowany tymi problemami. Wypożyczał ode mnie literaturę dotyczącą sposobów rozwoju własnej osobowości. Po zapoznaniu się z daną pozycją przychodził porozmawiać o swoich odczuciach i przemyśleniach. 
-Nadszedł czas matur, wybór kierunku studiów. Łukasz przyszedł do mnie z pytaniem co ma robić, gdzie składać podanie. Nadal nie wierzył, że może sobie poradzić na najlepszych kierunkach wyższych uczelni. Nie pomogły przykłady absolwentów naszej szkoły, którzy z medalami ukończyli AGH w Krakowie. Łukasz czuł się gorszy, był wystraszony. Wreszcie nadeszły egzaminy wstępne a następnie wyniki. Łukasz zjawił się u mnie w domu: „Co mam robić?” Był bardzo szczęśliwy, nie mógł uwierzyć, że tak dobrze mu poszło. Zdał na obu uczelniach z bardzo dobrym wynikiem. Musiał jednak wybrać uczelnię, na której będzie studiował. Prosił o radę. Obecnie od dwóch lat Łukasz studiuje na wydziale elektrotechniki i elektroniki AGH w Krakowie. Zgodnie z moimi oczekiwaniami jest jednym z najlepszych studentów na roku. Przy naszym ostatnim spotkaniu powiedział mi, jak bardzo się mylił obniżając tak bardzo własną ocenę. Tam są normalni ludzie – stwierdził. I wie pani co, na trzecim roku zaplanowałem, że będę najlepszym studentem. Jestem z niego dumna. I z siebie trochę też.
-Wiara w możliwość dokonania czegoś niezwykłego jest siłą napędową ludzi sukcesu, ludzi wielkich. Uwierz, że możesz osiągnąć sukces, a osiągniesz go.
-U podłoża większości niepowodzeń leży zwątpienie, brak wiary. Przekonanie o klęsce nie powinno zakorzenić się w naszym umyśle.
-Ten, kto uważa się za gorszego, będzie gorszy. 
-Jeżeli spojrzymy na człowieka, który uważa się za mało znaczącego, uwidacznia się w nim brak wiary w siebie i wszystko co robi jest dla niego mało znaczące. Jego samoocena jest negatywna i otoczenie spostrzega go takim, jak on sam siebie widzi.
-Jeżeli jednak popatrzymy na człowieka, który wie czego chce, wierzy w swoją wartość, a więc osiąga i otrzymuje odpowiednio dużo. Wierzy, że upora się z trudnymi zadaniami i rzeczywiście tak jest. Całe jego działanie, sposób w jaki traktuje ludzi, jego charakter, sposób myślenia i poglądy dają do zrozumienia: Oto człowiek czynu, wybitna osobowość.
-Człowiek jest wytworem własnego sposobu myślenia.
-Uwierz w siebie i wymagaj od siebie, myśl pozytywnie, rozszerzaj swoje horyzonty myślowe. Zacznij ofensywę sukcesu ze szczerym przekonaniem, że się powiedzie. Uwierz, że jesteś wielki i bądź wielki!
+
+##### Wiara przenosi góry.
+   Na sukces składa się wiele wspaniałych elementów: dobre samopoczucie, szacunek innych, zabezpieczenie finansowe, pomyślny start życiowy twoich dzieci. Sukces to wolność, a więc brak trosk, lęków rozczarowań i pomyłek; to poczucie własnej godności, szczęście i zadowolenie w życiu; to możliwość wspierania ludzi od ciebie zależnych. Sukces to wielki cel życiowy.
+   Każdego dnia młodzi ludzie podejmują gdzieś swoją pierwszą pracę, podejmują wyzwania. Wszyscy pragną wznieść się na sam szczyt. Większość jednak nie ma dostatecznej wiary, która jest niezbędna, jeżeli chce się zdobyć najwyższe szczeble w hierarchii zawodowej, osiągnąć sukcesy w zdobywaniu wykształcenia. A ponieważ nie wierzą w możliwości awansu i sukcesu, pozostają ludźmi przeciętnymi.
+   Niektórzy jednak mocno wierzą, że im się powiedzie. Mówią sobie: „Będę na szczycie!” i dzięki swemu niezachwianemu przekonaniu osiągają ten szczyt. Powodowani chęcią osiągnięcia celu obserwują zachowanie starszych kolegów i szefów, przyglądają się w jaki sposób ludzie sukcesu rozwiązują problemy i jak podejmują decyzje.
+   U podłoża większości niepowodzeń leży zwątpienie, brak wiary. Przekonanie o klęsce nie powinno zakorzenić się w naszym umyśle.Ten, kto uważa się za gorszego, będzie gorszy. 
+   Jeżeli spojrzymy na człowieka, który uważa się za mało znaczącego, uwidacznia się w nim brak wiary w siebie i wszystko co robi jest dla niego mało znaczące. Jego samoocena jest negatywna i otoczenie spostrzega go takim, jak on sam siebie widzi.
+   Jeżeli jednak popatrzymy na człowieka, który wie czego chce, wierzy w swoją wartość, a więc osiąga i otrzymuje odpowiednio dużo. Wierzy, że upora się z trudnymi zadaniami i rzeczywiście tak jest. Całe jego działanie, sposób w jaki traktuje ludzi, jego charakter, sposób myślenia i poglądy dają do zrozumienia: Oto człowiek czynu, wybitna osobowość.
+   Człowiek jest wytworem własnego sposobu myślenia.
+   Uwierz w siebie i wymagaj od siebie, myśl pozytywnie, rozszerzaj swoje horyzonty myślowe. Zacznij ofensywę sukcesu ze szczerym przekonaniem, że się powiedzie. Uwierz, że jesteś wielki i bądź wielki!
 Instrukcje: jak rozwijać siłę swej wiary
 
 •	Myśl o sukcesie, a nie o niepowodzeniach. W życiu prywatnym i zawodowym myśl zawsze w kategoriach sukcesu, a nigdy porażki. Stając w obliczu trudnej sytuacji powtarzaj w myślach: „Zwyciężę”, a nie „Na pewno się nie uda”. Konkurując z drugą osobą powtarzaj sobie „Dorównuję najlepszym”, a nie „On jest znacznie lepszy ode mnie”. Kiedy nadarza się okazja pomyśl: „Podołam”, a nie „Nie potrafię”. Pozwól, by myśl o sukcesie zdominowała cię całkowicie i sprowokowała twój umysł do opracowania planów, które gwarantują powodzenie. Myślenie w kategoriach przegranej sprowokuje wręcz coś przeciwnego.
@@ -138,24 +156,8 @@ Instrukcje: jak rozwijać siłę swej wiary
 
 Nikt nie może nakazać drugiemu człowiekowi, by się rozwijał. To od własnego wysiłku zależy, czy człowiek będzie stał w miejscu, czy się rozwijał w danej dziedzinie. Aby móc się rozwijać, potrzeba czasu, pracy i wyrzeczeń. Nikt tego za nas nie zrobi.
 
-Uodpornij się na chorobę nieudaczników
 
-Cóż znaczy ta choroba?
-Obserwując swoich bliźnich, stwierdzamy, że ludzie, którym się nie wiedzie, cierpią na paraliżującą ich myślenie chorobę. Każdy z nich ma ją w stadium zaawansowanym. Jest to wykręcanie się. Człowiek jest tym mniej skłonny do wykrętów, im większe ma osiągnięcia. Ci, którzy nie mają na swym koncie sukcesów i nie robią nic w tym kierunku, by je odnosić, mogą przytoczyć mnóstwo przyczyn swoich niepowodzeń.
-Wykręty:
-•	Zły stan zdrowia
-•	„Trzeba być mądrym, żeby odnieść sukces” – niedocenienie własnego umysłu a przecenienie umysłu innych ludzi. Chociaż wiedza to potęga, ale wykorzystana w umiejętny sposób. 
-•	Wiek – jestem za stary, jestem jeszcze za młody itp.
-•	Szczęście, pech – nie szczęście decyduje o losie człowieka. Jeśli człowieka sukcesu spotka porażka, jeśli ma pecha, wyciąga z tego wnioski i w efekcie na tym zyskuje. Musimy kierować się zasadami prowadzącymi do sukcesu i zgodnie z nimi postępować. Nie liczyć na szczęście, lecz koncentrować się na tym, by rozwinąć w sobie te cechy, które gwarantują zwycięstwo. Każdy jest kowalem swego losu.
-Buduj wiarę w siebie, wyzbądź się lęku
-
-Lęk to coś bardzo rzeczywistego. Zanim go zwalczymy, musimy najpierw stwierdzić, że naprawdę istnieje. W dzisiejszych czasach lęk ma na ogół podłoże psychiczne. Zaniepokojenie, napięcie, gonitwa myśl, panika. Lęk to największy wróg sukcesu. Nie pozwala ludziom korzystać z nadarzających się okazji, niszczy witalność, czyni człowieka chorym w dosłownym znaczeniu, wywołuje dolegliwości organiczne i skraca życie, zamyka usta, gdy chcesz mówić. Lęk – niepewność, brak wiary w siebie – nie pozwala ludziom osiągnąć tego, czego pragną.
-Musimy pokonać lęk i nabrać wiary w siebie.
-•	Określić swój lęk, ustalić, czego się obawiamy.
-•	Lęk można pokonać działaniem.
-•	Bądź zdecydowany, zacznij działać natychmiast.
-
-Zapamiętaj pięć pożytecznych zasad zachowania się
+###### Zapamiętaj pięć pożytecznych zasad zachowania się
 
 •	Działanie uwalnia od lęku – określ swój lęk i podejmij przeciwko niemu konstruktywne kroki. Bezczynność, bierne trwanie w jakiejś sytuacji – potęguje lęk i niszczy wiarę w siebie.
 •	Staraj się deponować w swoim banku pamięci tylko myśli pozytywne. Nie pozwól, by negatywne, destrukcyjne myśli nękały twój umysł. Po prostu staraj się nie myśleć o przykrych sytuacjach i wydarzeniach z przeszłości.
@@ -184,29 +186,26 @@ Drogi prowadzące do twórczego myślenia
 	Ucz się zadawać pytania i słuchać. Dzięki temu zbierzesz informacje, aby podjąć trafną decyzję.
 	Poszerzaj swoje horyzonty myślowe. Utrzymuj kontakty z ludźmi, którzy są pomysłowi i otwarci, dzięki którym znajdziesz nowe możliwości działania.
 
-6. Wspólnie wychowujemy młodego, odpowiedzialnego człowieka. Znaczenie dobrych stosunków: rodzice – wychowawca – szkoła, dla sukcesów szkolnych i życiowych ucznia.
+#### VI. Wspólnie wychowujemy młodego, odpowiedzialnego człowieka. Znaczenie dobrych stosunków: rodzice – wychowawca – szkoła, dla sukcesów szkolnych i życiowych ucznia.
 
-My nauczyciele zdajemy sobie doskonale sprawę z tego, że aby zająć się wydobywaniem i rozwijaniem niepowtarzalnych cech każdego dziecka, należy przyjrzeć się jego rozwojowi i umiejętnie dostosować wymagania i zadania, których realizacji oczekują od ucznia nauczyciele i rodzice. Musimy, dla dobra dziecka utrzymywać kontakt z Wami rodzice, gdyż jesteście najlepszym źródłem informacji o uczniu, a my pragniemy lepiej poznać dziecko i naturalne warunki jego rozwoju.
-W obecnych szkołach masowych uczą się dzieci z deficytami rozwojowymi, dzieci alergiczne, nadpobudliwe, o obniżonych możliwościach intelektualnych, zdolne i przeciętne. Z problemami edukacyjnymi wynikającymi z właściwości rozwojowych, nie zawsze radzą sobie rodzice, gdyż nie wszyscy posiadają wiedzę z zakresu psychologii czy pedagogiki. Myślę, że wielu rodziców liczy na pomoc mądrych, życzliwych nauczycieli, pragnie współpracować, lecz nie wie jak. Bardzo ważnym jest aby ta współpraca właściwie się układała i by rodzice byli zaangażowani w realizację planu pracy szkoły
-Nowa szkoła, w oparciu o podstawy programowe i rozporządzenia, ma gwarantować każdemu uczniowi równy start w dorosłe życie, umożliwiać rozwój indywidualnych zainteresowań, potrzeb i zdolności oraz pomóc w nabywaniu umiejętności koniecznych w podejmowaniu życiowych decyzji. Dostosowanie wymagań do indywidualnych możliwości uczniów jest możliwe jedynie w sytuacji, gdy nauczyciel zna i rozumie specyfikę różnic rozwojowych, a bez kontaktu i współpracy z Wami rodzice nie zdobędzie rzetelnej wiedzy na temat wychowanka. 
-Przy wielkiej różnorodności indywidualnych osobowości nie można oddziaływać na dziecko efektywnie bez Waszej pomocy. Wychowawca, który nie zacznie pracy od nawiązania dobrego kontaktu z rodzicami, od poznania trudności dziecka i trudności wychowawczych rodziców nie potrafi towarzyszyć uczniowi w jego wszechstronnym rozwoju. Trudno mu będzie zrozumieć problem rodziny i indywidualny problem ucznia. 
-A zrozumieć dziecko, to przyjąć go takim jakie jest, wspomagać jego rozwój na poziomie właściwym cechom rozwojowym. Zrozumieć dziecko i zaakceptować go, to ułatwić sobie pracę wychowawczą i pozbyć się lęku o efekty działań dydaktycznych. Bez pomocy Was rodzice jest to bardzo utrudnione, a czasem nawet niemożliwe. 
-Rolą szkoły jest wspomaganie wychowawczej roli rodziny. A to właśnie świat ludzi dorosłych rodzi powstawanie problemów wychowawczych u dzieci i młodzieży. 
-"Największym problemem wychowawczym nie jest to, że młodzież nie słucha dorosłych, ale że ich naśladuje w tym, co złe i dobre". 
-Dewaluują się tradycyjne wartości, zacierają granice między dobrem a złem. W życiu codziennym zaczyna dominować pieniądz i brutalna siła. 
-Rodzice goniąc za zarobkami, tracą kontakt ze swoimi dziećmi. Te z kolei, nie mogąc zaspokoić elementarnych potrzeb w rodzinie - potrzeby miłości, akceptacji, rozmowy - przyłączają się do grup nieformalnych, uciekają w świat alkoholu i przemocy, chcąc wykrzyczeć to wszystko, co ich boli. 
-Szkoła może skutecznie wychowywać tylko wspólnie z rodzicami, bez takiej współpracy wychowanie szkolne nie ma żadnych szans. Nikt nie zwolni dorosłych z obowiązku wychowywania młodego pokolenia. 
-Istotą szkoły jest stawienie wymagań służących rozwojowi młodego człowieka. Wymagania te, nie zawsze dostosowane do możliwości psychofizycznych dzieci i młodzieży, powodują porażki, niepowodzenia, a reakcją obronną są przejawy buntu, zniechęcenia i agresji. Rodzice i nauczyciele często są wystawiani na próbę łagodności, spokoju i cierpliwości. Nauczyciel konsultuje się z rodzicami i zaczynają wspólne dociekania o przyczyny, obwiniając m.in. ucznia za jego lenistwo, krnąbrność, złośliwość, upór. 
-Dobrze, jeżeli szczera rozmowa, w klimacie wzajemnego zaufania, wyłoni prawdziwą przyczynę niepowodzeń ucznia, wtedy przy mądrym postępowaniu można ten mechanizm zatrzymać. . Rodzice i nauczyciele często są wystawiani na próbę łagodności, spokoju i cierpliwości.
-A co się stanie, jeżeli jedynym winowajcą pozostanie uczeń? 
-Świadomość posiadanej władzy nad dzieckiem, którą mają rodzice i nauczyciele sprzyja takim zachowaniom dorosłych, jak szydzenie, wyśmiewanie, poniżanie dziecka. 
-Inny sposób powstrzymania dziecka od niebezpiecznych zachowań to nakazy i zakazy. Jest rzeczą oczywistą, że nakaz i zakaz są nieodzowne w życiu człowieka, lecz zbyt częste i dotyczące najbardziej elementarnych potrzeb dziecka prowadzą do niebezpiecznych następstw - ucieczki z domu, próby samobójcze. Nakazy mają na celu bezpośrednie ukierunkowanie działalności dziecka zgodnie z życzeniami rodziców, a często wbrew woli dziecka (np. dzisiaj, po powrocie ze szkoły masz zjeść obiad i będziesz się uczył aż do wieczora, a ja sprawdzę, czego się nauczyłeś). Poprzez różne formy nakazu naciskamy na dziecko, zmuszając je do nauki, posłuszeństwa, pokory, nie zważając na psychofizyczne uwarunkowania procesu rozwojowego młodego człowieka.
-Zakaz natomiast ma go powstrzymać przed określonym działaniem. Oba te sposoby ingerowania w zachowanie dziecka wyrażone są krótką formą słowną, oraz mniej lub bardziej ostrym tonem. Niejednokrotnie zakaz poparty jest groźbą kary. 
-Rodzice równie często jak nakazy i zakazy stawiają dziecku warunki, chcąc tą drogą zmobilizować je do większego wysiłku i lepszych osiągnięć np. "Od tej chwili nie będę się do ciebie odzywała, odezwę się pod warunkiem, że przyniesiesz piątkę z języka polskiego".
-Takich przykładów jest wiele, lecz najgorsze są te uwarunkowania, które ograniczają podstawowe potrzeby młodego człowieka. 
-Dysfunkcjonalne rodziny nie uznają i nie szanują faktu, że dzieci - tak jak wszystkie ludzkie istoty - są niedoskonałe. Dzieci są atakowane za swoją niedoskonałość i nieustannie otrzymują komunikat, że niedoskonałość jest czymś nienormalnym. Na to domaganie się doskonałości ze strony rodziców mogą zareagować w dwojaki sposób. Mogą starać się zaspokoić to żądanie, wyzbywając się swoich naturalnych cech. Mogą też czuć się przytłoczone niemożliwymi do spełnienia oczekiwaniami rodziców i zbuntować się, odmawiając współpracy, a następnie wypracowując w sobie cechy przeciwne tym, jakich oczekiwali od nich rodzice. Rodzice mówią o nich: "złe, albo "zbuntowane dzieci". 
-Często przyklejamy etykietę "trudnego” dziecka temu, które w istocie wcale nie jest trudnym, a tylko zostało obdarzone przez naturę witalnością, spostrzegawczością, ruchliwością. A gdy dziecko dokazuje, nie chce wejść w kierat obowiązków - zamiast zdobyć się na maksimum wysiłku, cierpliwości i taktu - straszymy, besztamy, skarżymy się albo wpadamy w panikę i opuszczamy bezradnie ręce.
-A gdy przychodzi czas dojrzewania, kiedy wrażliwość dziecka potęguje się, wzrasta wstydliwość, występuje opryskliwość i krnąbrność - wówczas u rodziców nie przygotowanych, nie zdających sobie sprawy z trudnego okresu rozwojowego ich dziecka, zaczyna się czas walki z niedobrym, "trudnym dzieckiem”, co jest brzemienne w najfatalniejsze skutki. 
+  My nauczyciele zdajemy sobie doskonale sprawę z tego, że aby zająć się wydobywaniem i rozwijaniem niepowtarzalnych cech każdego dziecka, należy przyjrzeć się jego rozwojowi i umiejętnie dostosować wymagania i zadania, których realizacji oczekują od ucznia nauczyciele i rodzice. Musimy, dla dobra dziecka utrzymywać kontakt z Wami rodzice, gdyż jesteście najlepszym źródłem informacji o uczniu, a my pragniemy lepiej poznać dziecko i naturalne warunki jego rozwoju.
+  W obecnych szkołach masowych uczą się dzieci z deficytami rozwojowymi, dzieci alergiczne, nadpobudliwe, o obniżonych możliwościach intelektualnych, zdolne i przeciętne. Z problemami edukacyjnymi wynikającymi z właściwości rozwojowych, nie zawsze radzą sobie rodzice, gdyż nie wszyscy posiadają wiedzę z zakresu psychologii czy pedagogiki. Myślę, że wielu rodziców liczy na pomoc mądrych, życzliwych nauczycieli, pragnie współpracować, lecz nie wie jak. Bardzo ważnym jest aby ta współpraca właściwie się układała i by rodzice byli zaangażowani w realizację planu pracy szkoły
+  Nowa szkoła, w oparciu o podstawy programowe i rozporządzenia, ma gwarantować każdemu uczniowi równy start w dorosłe życie, umożliwiać rozwój indywidualnych zainteresowań, potrzeb i zdolności oraz pomóc w nabywaniu umiejętności koniecznych w podejmowaniu życiowych decyzji. Dostosowanie wymagań do indywidualnych możliwości uczniów jest możliwe jedynie w sytuacji, gdy nauczyciel zna i rozumie specyfikę różnic rozwojowych, a bez kontaktu i współpracy z Wami rodzice nie zdobędzie rzetelnej wiedzy na temat wychowanka. 
+  Przy wielkiej różnorodności indywidualnych osobowości nie można oddziaływać na dziecko efektywnie bez Waszej pomocy. Wychowawca, który nie zacznie pracy od nawiązania dobrego kontaktu z rodzicami, od poznania trudności dziecka i trudności wychowawczych rodziców nie potrafi towarzyszyć uczniowi w jego wszechstronnym rozwoju. Trudno mu będzie zrozumieć problem rodziny i indywidualny problem ucznia. 
+  A zrozumieć dziecko, to przyjąć go takim jakie jest, wspomagać jego rozwój na poziomie właściwym cechom rozwojowym. Zrozumieć dziecko i zaakceptować go, to ułatwić sobie pracę wychowawczą i pozbyć się lęku o efekty działań dydaktycznych. Bez pomocy Was rodzice jest to bardzo utrudnione, a czasem nawet niemożliwe. 
+  Rolą szkoły jest wspomaganie wychowawczej roli rodziny. A to właśnie świat ludzi dorosłych rodzi powstawanie problemów wychowawczych u dzieci i młodzieży. 
+  ###### "Największym problemem wychowawczym nie jest to, że młodzież nie słucha dorosłych, ale że ich naśladuje w tym, co złe i dobre". 
+ Dewaluują się tradycyjne wartości, zacierają granice między dobrem a złem. W życiu codziennym zaczyna dominować pieniądz i brutalna siła. Rodzice goniąc za zarobkami, tracą kontakt ze swoimi dziećmi. Te z kolei, nie mogąc zaspokoić elementarnych potrzeb w rodzinie - potrzeby miłości, akceptacji, rozmowy - przyłączają się do grup nieformalnych, uciekają w świat alkoholu i przemocy, chcąc wykrzyczeć to wszystko, co ich boli. 
+ Szkoła może skutecznie wychowywać tylko wspólnie z rodzicami, bez takiej współpracy wychowanie szkolne nie ma żadnych szans. Nikt nie zwolni dorosłych z obowiązku wychowywania młodego pokolenia. 
+ Istotą szkoły jest stawienie wymagań służących rozwojowi młodego człowieka. Wymagania te, nie zawsze dostosowane do możliwości psychofizycznych dzieci i młodzieży, powodują porażki, niepowodzenia, a reakcją obronną są przejawy buntu, zniechęcenia i agresji. Rodzice i nauczyciele często są wystawiani na próbę łagodności, spokoju i cierpliwości. Nauczyciel konsultuje się z rodzicami i zaczynają wspólne dociekania o przyczyny, obwiniając m.in. ucznia za jego lenistwo, krnąbrność, złośliwość, upór. 
+ Dobrze, jeżeli szczera rozmowa, w klimacie wzajemnego zaufania, wyłoni prawdziwą przyczynę niepowodzeń ucznia, wtedy przy mądrym postępowaniu można ten mechanizm zatrzymać. . Rodzice i nauczyciele często są wystawiani na próbę łagodności, spokoju i cierpliwości.
+ A co się stanie, jeżeli jedynym winowajcą pozostanie uczeń?. Świadomość posiadanej władzy nad dzieckiem, którą mają rodzice i nauczyciele sprzyja takim zachowaniom dorosłych, jak szydzenie, wyśmiewanie, poniżanie dziecka. 
+ Inny sposób powstrzymania dziecka od niebezpiecznych zachowań to nakazy i zakazy. Jest rzeczą oczywistą, że nakaz i zakaz są nieodzowne w życiu człowieka, lecz zbyt częste i dotyczące najbardziej elementarnych potrzeb dziecka prowadzą do niebezpiecznych następstw - ucieczki z domu, próby samobójcze. Nakazy mają na celu bezpośrednie ukierunkowanie działalności dziecka zgodnie z życzeniami rodziców, a często wbrew woli dziecka (np. dzisiaj, po powrocie ze szkoły masz zjeść obiad i będziesz się uczył aż do wieczora, a ja sprawdzę, czego się nauczyłeś). Poprzez różne formy nakazu naciskamy na dziecko, zmuszając je do nauki, posłuszeństwa, pokory, nie zważając na psychofizyczne uwarunkowania procesu rozwojowego młodego człowieka.
+ Zakaz natomiast ma go powstrzymać przed określonym działaniem. Oba te sposoby ingerowania w zachowanie dziecka wyrażone są krótką formą słowną, oraz mniej lub bardziej ostrym tonem. Niejednokrotnie zakaz poparty jest groźbą kary. 
+ Rodzice równie często jak nakazy i zakazy stawiają dziecku warunki, chcąc tą drogą zmobilizować je do większego wysiłku i lepszych osiągnięć np. "Od tej chwili nie będę się do ciebie odzywała, odezwę się pod warunkiem, że przyniesiesz piątkę z języka polskiego".Takich przykładów jest wiele, lecz najgorsze są te uwarunkowania, które ograniczają podstawowe potrzeby młodego człowieka. 
+ Dysfunkcjonalne rodziny nie uznają i nie szanują faktu, że dzieci - tak jak wszystkie ludzkie istoty - są niedoskonałe. Dzieci są atakowane za swoją niedoskonałość i nieustannie otrzymują komunikat, że niedoskonałość jest czymś nienormalnym. Na to domaganie się doskonałości ze strony rodziców mogą zareagować w dwojaki sposób. Mogą starać się zaspokoić to żądanie, wyzbywając się swoich naturalnych cech. Mogą też czuć się przytłoczone niemożliwymi do spełnienia oczekiwaniami rodziców i zbuntować się, odmawiając współpracy, a następnie wypracowując w sobie cechy przeciwne tym, jakich oczekiwali od nich rodzice. Rodzice mówią o nich: "złe, albo "zbuntowane dzieci". 
+ Często przyklejamy etykietę "trudnego” dziecka temu, które w istocie wcale nie jest trudnym, a tylko zostało obdarzone przez naturę witalnością, spostrzegawczością, ruchliwością. A gdy dziecko dokazuje, nie chce wejść w kierat obowiązków - zamiast zdobyć się na maksimum wysiłku, cierpliwości i taktu - straszymy, besztamy, skarżymy się albo wpadamy w panikę i opuszczamy bezradnie ręce.
+ A gdy przychodzi czas dojrzewania, kiedy wrażliwość dziecka potęguje się, wzrasta wstydliwość, występuje opryskliwość i krnąbrność - wówczas u rodziców nie przygotowanych, nie zdających sobie sprawy z trudnego okresu rozwojowego ich dziecka, zaczyna się czas walki z niedobrym, "trudnym dzieckiem”, co jest brzemienne w najfatalniejsze skutki. 
 Najłatwiej jest wymierzać dziecku karę fizyczną, bo po prostu nie trzeba nad nią myśleć. Ale w wychowaniu nie może być miejsca na bezmyślność. Każda kara musi być głęboko przemyślana i uzasadniona.
 Dobierając rodzaj kary, należy uwzględnić wiek dziecka i cechy jego osobowości. W stosunku do dziecka wrażliwego wystarczającą karą będzie sama dezaprobata wyrażona w słowach lub w sposobie bycia rodziców. Mocniejsze będzie umocnienie słowne, rzeczowa wymówka lub nagana w tonie ostrym, lecz wolnym od gniewu i uniesienia. Pamiętajmy nie krytykujemy dziecka, lecz jego zachowanie, które uważamy za niewłaściwe. 
 Najczęściej stosowanym środkiem karania jest bicie, a więc przemoc fizyczna. Rodzice uzasadniają stosowanie tego środka, mówiąc np. "Jak się ma takie dziecko, to bez bicia się nie obejdzie”, "On by nam na głowę wszedł, jakby nie dostał”, "On by przewrócił cały dom, tylko pasem można go uspokoić”. W tym wypadku nie ma co doszukiwać się atmosfery akceptacji czy miłości. 
@@ -278,131 +277,4 @@ Bibliografia:
 4. Salomon Łastik, Trudni rodzice, Czytelnik, Warszawa, 1967. 
 5. Praca zbiorowa, Potęga osobowości: Żyj wśród ludzi, Świat Książki, Warszawa 1996.
 
-
-
-
-8. Współpraca rodziny i szkoły w zakresie przeciwdziałania narkomanii i przynależności do sekt.
-
-„ Istnieją więzienia mające kraty, solidne kraty, które widać i które można przepiłować.
-Istnieją też inne, mające niewidzialne kraty, których nie można chwycić i potrząsnąć z wściekłością, chociaż mówią Ci 
-z uśmiechem:
-„Ależ jesteś wolny, drzwi są otwarte, możesz wyjść …”
-Claude Buffet
-Sięganie po środki odurzające oraz wstępowanie przez młodzież do różnego rodzaju sekt ma podobne przyczyny. Tkwią one i w domu rodzinnym, i w szkole, i w środowisku. Przyczyny te dokładnie scharakteryzowaliśmy i przeanalizowaliśmy na poprzednim spotkaniu. Dlatego tak wielkie znaczenie ma współpraca i stały kontakt rodziców ze szkołą. Sekty uzależniają, potrafią manipulować ludźmi, „prać mózgi”. Robią to różnymi metodami, niejednokrotnie przy pomocy narkotyków. 
-Co to jest sekta
-•	grupa ludzi, którzy oderwali się od kościoła lub wspólnoty religijnej;
-•	grupa która przyjęła własne zasady doktrynalne i organizacyjne o piramidalnej strukturze władzy, obowiązków i przywilejów;
-•	członkowie sekty są przekonani o słuszności swego oddzielenia  -niemożliwe, by trwali w błędzie !!!
-•	jedynie oni posiadają zdawczą prawdę;
-•	na czele grupy stoi mistrz, guru – jej założyciel, któremu winni całkowite i bezgraniczne posłuszeństwo.
-W Polsce działa ponad 300 sekt. Rocznie polska policja notuje ok.. 10 tys. przypadków zaginięć. W większości chodzi o ludzi młodych. Ostatnio także w niektórych rejonach naszego kraju zanotowano wzrost samobójstw popełnianych przez ludzi młodych. Autopsje potwierdziły rytualny charakter tych czynów. rokrocznie obserwujemy wzmożoną aktywność sekt. Wypracowane metody werbowania nowych członków powodują, że każdego roku wielu młodych ludzi zrywa kontakt z najbliższymi, opuszcza rodziny i przepada w sektach.
-Do najbardziej aktywnych sekt w Polsce należą:
-MORMONI
-RUCH ŚWIADOMOŚCI BABA JI
-KOŚCIÓŁ SCJENTOLOGICZNY RODZINA (DZIECI BOGA)
-SATANIŚCI 
-MIĘDZYNARODOWE TOWARZYSTWO ŚWIADOMOŚCI KRYSZNY (HARE KRYSZNA)
-NIEBO
-KOŚCIÓŁ ZJEDNOCZENIOWY MOONA
-Dlaczego sekty fascynują młodzież ? Tajemnica oddziaływania sekt polega na tym, iż wychodzą ludziom naprzeciw, szukają ich tam, gdzie oni są. w sposób serdeczny, osobisty, bezpośredni wydobywają ich z anonimowości, wspierają ich dążenia do współuczestnictwa, współodpowiedzialności, zaangażowania, a także sprawują nad nimi intensywną opiekę – poprzez liczne kontakty, odwiedziny w domach, nieustające wspieranie i pomaganie.
-Sekty rozwijają się w różnych środowiskach, ale szczególnie na ich działanie narażona jest młodzież. Sprzyjają temu zwłaszcza następujące warunki jej egzystencji 
--współczesny chaos społeczno- moralny,
--zanik więzi rodzinnych,
--sytuacje kryzysowe, np. niezdany egzamin, nieszczęśliwa miłość, utrata kogoś bliskiego, sprzeczka w domu.
-
-
-
-Znaki rozpoznawcze po których możesz poznać, że Twoje dziecko mogło mieć kontakt z sektom:
-1.	Zmiana słownictwo i ubioru – człowiek zaczyna mówić „nowym językiem” używa słów i pojęć, których wcześniej nie używał. Zaczyna inaczej się ubierać, zmienia fryzurę.
-2.	Zmiana osobowości – nadwrażliwość – człowiek staje się bardziej wrażliwy na wszelkie uwagi odnośnie siebie i grupy pod wpływem której się zmienił.
-3.	Naprzemienna radość i smutek – jest wynikiem coraz to głębszego uzależnienia człowieka od sekty. Taki stan prowadzi do depresji.
-4.	Rezygnacja z własnego ja – liczy się tylko grupa, człowiek dla niej rezygnuje z tego co było dotąd treścią jego życia. Może to być praca, szkoła, dom. Wszystkie decyzje podporządkowuje i poddaje ocenie sekty. 
-5.	Ciągły lęk, obawa – człowiek we wszystkim i wszystkich widzi wroga, przede wszystkim grupy, do której się przyłączył. Ciągły niepokój o dziś i jutro, ucieczka przed rzeczywistością.
-6.	Gloryfikacja grupy – grupa staje się wszystkim dla człowieka. Członek grupy nieustannie chce mówić jaka w niej panuje jedność, braterstwo i miłość. Brak jakiegokolwiek krytycyzmu, rzeczowej oceny.
-7.	Obojętność i chłód w relacjach z rodziną i przyjaciółmi. 
-8.	Nowe grono znajomych, która bez reszty absorbuje uwagę osoby werbowanej. 
-
-Jeżeli Twoje dziecko trafiło do sekty.
-Co robić, a czego nie robić?
-- Nie wpadać w popłoch.
-- W miarę możliwości utrzymywać kontakt.
-- Zachować pozytywne nastawienie, spokój i chęć dialogu.
-- Nie zwalczać wprost nowo zdobytych przekonań.
-- Zapisywać wszystkie nazwiska, adresy i numery telefonów.
-- Zbierać wszelkie informacje na temat sekty i jej działalności. 
-- Postawić raczej na uczciwe zabarwienie wzajemnych kontaktów niż na zdrowy rozsądek.
-- Używać pytań, a nie twierdzeń.
-- Zwracać uwagę na oczywiste sprzeczności, ale bez napastliwości.
-- Pielęgnować to, co rzeczywiście pozwala na podtrzymanie kontaktu: zainteresowania, wspomnienia rodzinne przeżyte poza grupą.
-- Nie wysyłać pieniędzy! Pożytek z nich będzie czerpać sekta; planować raczej osobiste prezenty np. zrobiony na drutach sweter. 
-- Nigdy nie rozstawać się z dokumentami, dotyczącymi adepta bądź grupy.
-- Nigdy się nie poddawać! Należy pamiętać o tym, że w walce z sektami potężną bronią są miłość i wspomnienia.
-
-Literatura którą warto przeczytać:
-
-1.	Kosińska E. Gajewski M.: Sekty – religijny supermarket. Kraków 2000
-2.	Nowakowski P.: Sekty. Co każdy powinien wiedzieć. Tychy 1999
-3.	Prokop J.: Uwaga rodzice! – Sekty. Warszawa 1999
-4.	Zwoliński A. : Anatomia sekty. Warszawa 1996
-
-GDZIE SZUKAĆ POMOCY ?
-
-Oto niektóre adresy i telefony które mogą być pomocne:
-
-Dominikańskie Centrum Informacji o Nowych Ruchach Religijnych i Sektach. Kraków, ul. Stolarska 12
-    23 – 16 – 13    wew. 26
-Ośrodek Pomocy Rodzinie w Żywcu.ul. Sienkiewicza 19.
-	8641 – 36 – 05 
-
-        Adresy internetowe:
-http: //www.effatha.pl/
-   http://www.sekty.prv.pl/
-
-
-
-9. Granice wolności w wychowaniu
-
-
-Wszyscy ludzie, młodzi i starsi odczuwają potrzebę wolności. Coraz bardziej upowszechnia się świadomość tego, że absolutna wolność bez granic nie jest możliwa.
-Jak wychowywać młodzież w duchu wolności – ale w pewnych granicach? Jakie są te granice?
-Definicja wolności:
-- możliwość podejmowania decyzji i postępowania zgodnie z przyjętym systemem wartości i światopoglądem.
-
-Wolność człowieka jest ograniczona, gdyż nie żyje on w izolacji i musi być akceptowany przez innych
-Wolność działania jest ograniczona istnieniem wielu możliwych rozwiązań danego problemu. Im lepiej człowiek zna wszelkie prawidłowości istniejące w przyrodzie i w życiu społecznym, tym lepsza jest jego wolność wyboru działania, człowiek wówczas czuje się bardziej wolny.
- Wolność człowieka nie jest więc zależna od własnego „widzimisię”, ale zawsze w pewnym stopniu od czynników obiektywnych. Mimo tych ograniczeń, człowiek ma tak dużo możliwości wyboru, że jego działania mogą być: albo pożyteczne dla niego i społeczeństwa, albo szkodliwe dla innych ludzi lub krzywdzące samego siebie.
-W stosunku do wolnościowych dążeń uczniów, nauczyciele i rodzice powinni z jednej strony rozwijać ich samodzielność, aktywność i pomysłowość, z drugiej zaś wdrażać do ograniczania ich niektórych działań. Przede wszystkim tych, które szkodzą innym i sobie.
-Sama wiedza w podejmowaniu właściwych decyzji nie wystarczy. Ktoś np. wie, że palenie papierosów szkodzi zdrowiu a jednak pali. Wie, że nadmiar alkoholu powoduje zgubne skutki a jednak nie raz można zaobserwować nadużywających trunków. Młodzi ludzie wiedzą, że narkotyki to śmierć a jednak sięgają po nie. I wreszcie nieraz chłopak wie, na czym polega miłość, a jednak dąży do tego, by pójść z dziewczyną do łóżka.
-Aby wiedza była podstawą wyboru pożytecznego działania, musi być połączona z przekonaniem, ze świadomością, że tak właśnie należy postąpić, że to jest właściwy wybór. Emocjonalny stosunek człowieka do posiadanej wiedzy decyduje o tym, że dana wartość moralna staje się wartością człowieka.
-Przekonania człowieka mogą być dobre albo złe. Działania człowieka zgodne z jego pozytywnymi przekonaniami – to pierwsza granica wolności.
-Zdarza się czasem, że człowiek o pozytywnych przekonaniach, pod wpływem chwili postąpi niewłaściwie i tego żałuje.
-Człowiek wolny działa w granicach rozsądku i z rozmysłem. Jeśli jego wybory i zachowanie zależą od chwili, czy sytuacji przypadkowych, to nie jest on właściwie wolnym człowiekiem. Rządzi nim przypadek, nie rozsądek.
-W szkole przypadkowych okoliczności jest wiele. W szkole istnieje regulamin, akceptacja Dyrekcji, wychowawcy i nauczycieli i w tych granicach uczeń może czuć się wolny. Podobnie w domu rodzinnym.
-Problem wolności, to również problem dorosłych ludzi. Wychowywać wolnego człowieka to przede wszystkim samemu być wolnym i dawać tego świadectwo. 
-Wychowywać wolnego człowieka to szanować innych ludzi i wymagać dla nich i dla siebie szacunku.
-
-Jak dążyć do samorealizacji
-
-Po zaobserwowaniu cech ludzi samorealizujących się, ludzi szczęśliwych z natury, Abraham Maslow zaproponował następujące kroki, które prowadzą do szczęśliwego i pełniejszego życia:
-
- 	Spróbuj przeżyć coś nowego i przynajmniej przez jakiś czas wykonuj różne prace w zupełnie inny sposób niż robiłeś to do tej pory.
-
- 	Kiedy oceniasz własne doświadczenia, słuchaj uważnie swych prawdziwych przyjaciół. Bez sprawdzenia jakichś poglądów, nie powtarzaj ich i nie daj się im podporządkować.
-
- 	Unikaj pozorów i gier w kontaktach z ludźmi. 
-
-
- 	Naucz się wyrażania własnych poglądów.
-
- 	Nie ukrywaj się za plecami innych ludzi. Weź całkowitą odpowiedzialność za to co robisz.
-
- 	Wykonuj solidnie wszystko, czego się podjąłeś.
-
- 	Wyrabiaj w sobie pozytywny stosunek do ludzi, których spotykasz.
-
- 	Spróbuj uświadomić sobie i wyeliminować postawę defensywną w stosunkach z innymi. Np. kiedy ktoś wygłasza poglądy przeciwne do Twoich, zmuś się i słuchaj – może czegoś się nauczysz , a może Ty przedstawiając spokojnie swoje stanowisko nauczysz czegoś innych?
-
-
-
-Z pewnością nie można się zmienić (nie da się tego zrealizować) w ciągu jednej nocy ale przestrzegając systematycznie powyższych zasad, możesz stopniowo dokonać pozytywnych zmian i poczuć się bardziej wolny.
 
