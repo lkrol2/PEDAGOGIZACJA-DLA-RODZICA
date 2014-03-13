@@ -2,30 +2,33 @@
 ![Help] (http://pedagogika-psychologia.blog.pl/files/2013/09/ahelpdda.jpeg)
 
 
-W ostatnich dziesięcioleciach w Polsce konieczne staje się podjęcie bardziej radykalnej walki ze zjawiskiem narkomanii. Siła narkotyku tkwi w mocy zawartych w nim trucizn oraz ich ujemnych oddziaływaniach na sferę fizyczną i psychiczną człowieka.
-Po wojnie narkomania nie rozprzestrzeniała się na taką skalę, jak w wielu krajach o wysokim stopniu rozwoju gospodarczego. 
-Dopiero od drugiej połowy lat 60 zjawisko staje się coraz bardziej powszechne, głównie w środowiskach młodzieży. Początkowo przemilczane, zaczyna obejmować swym zasięgiem coraz większą liczbę młodych ludzi. Szerzy się nawet wśród uczniów szkół podstawowych. 
-Potrzeba zainteresowania społeczeństwa narkomanią jest coraz większa z uwagi na konieczność zapobiegania jej. Leczenie jest bardzo trudne, a wyniki kuracji nie dają podstaw do zbytniego optymizmu. 
-Zasadniczej rangi nabierają więc zagadnienia profilaktyki, w tym jak najszerszej edukacji dzieci, młodzieży, rodziców i wychowawców
-Determinanty powstawania uzależnień
-Wśród czynników warunkujących powstawanie nałogów na wyróżnienie zasługują tzw. efekty farmakologiczne. Najważniejszym z nich jest zdolność niektórych środków do wywoływania subiektywnego uczucia zwanego euforią, czyli nadmiernie dobrego samopoczucia. Właściwość ta powoduje, iż w krótkim czasie może być osiągnięty względny komfort psychiczny w postaci odprężenia, spokoju i poczucia bezpieczeństwa. Efekt farmakologiczny zapewnia możliwość ucieczki od stresu i frustracji zrodzonej w warunkach współczesnego życia, przytłoczenia jego tempem, a przede wszystkim napięciami w stosunkach międzyludzkich. Właśnie omawiany efekt stanowi pozytywne wzmocnienie skłaniające do ponownego sięgnięcia po środek wywołujący powyższy stan.
-Czynnikiem usposabiającym do narkomanii, chociaż nie niezbędnym jej warunkiem, jest dewiacja osobowości. Na wejście w nałóg są podatni osobnicy niedojrzali emocjonalnie i psychoseksualnie z niedorozwiniętym systemem wewnętrznej kontroli. Posiadają oni często wygórowane wymagania, oczekując natychmiastowego spełnienia swych potrzeb życiowych. Są to jednostki nadwrażliwe, o "kruchej osobowości", nie posiadające potrzeby dominacji, charakteryzujące się nieporadnością wobec trudności życiowych, od których starają się uciec, chociażby przez "zniekształcenie" rzeczywistości za pomocą środków odurzających.
-Istotną rolę w powstawaniu wszelkiego rodzaju uzależnień odgrywają czynniki społeczne. Środowiskowa atmosfera aprobaty lub potępienia stosowania środków odurzających może zwiększyć albo zmniejszyć liczbę osób narażonych na ryzyko wejścia w nałóg. Znaczącą rolę w rozprzestrzenianiu się tego typu dewiacji może mieć nacisk członków grup rówieśniczych oraz rozbieżność pomiędzy wartościami propagowanymi a rzeczywistością społeczną.
-Pośród głównych determinantów sprzyjających rozprzestrzenianiu się zjawiska narkomanii należy także wyróżnić wpływ czynnika rodzinnego. Jednym ze skutków industrializacji i urbanizacji jest niestabilność rodziny, zanikanie wpływu rodziców na dzieci oraz brak skutecznych form kontroli nad nimi. Rodzice coraz mniej czasu poświęcają dzieciom, a emancypacja zawodowa prowadzi bardzo często do zachwiania tradycyjnych autorytetów. Czymś normalnym staje się rozwód, rzadko spotykający się z dezaprobatą środowiska. W tych warunkach dzieci podatne są często na niepożądane wpływy środowiska rówieśniczego.
-Krytykowana przez starsze pokolenie młodzież obserwuje, że podstawowym, a niekiedy jedynym celem społeczeństwa, w którym żyje, jest dążenie do dobrobytu materialnego. Największą wartością jest pieniądz, bez względu na to, jaką drogą został zdobyty. Młodzi ludzie dążąc do potwierdzenia wartości preferowanych przez siebie, do uzyskania wyższych wrażeń estetycznych, sięgają między innymi po środki, które pozwalają im oderwać się od szarej rzeczywistości i przenieść w złudny wprawdzie świat szczęścia i radości.
-Rodzicom wydaje się niejednokrotnie, że brak miłości do dzieci można zrekompensować przy pomocy drogich prezentów. Ale przeważnie okazuje się, iż pieniądze zdobywane kosztem czasu, który należało poświęcić dziecku, potrafią przynieść szkody nie do odrobienia.
-W tworzeniu warunków do rozprzestrzeniania się nałogów nic pozostaje bez winy również szkoła Obszerne programy, nic odpowiadające poziomowi intelektualnemu dzieci i młodzieży, realizowane tradycyjnymi metodami, są często przyczyną niepowodzeń szkolnych. Brak nauczycieli o odpowiednich kwalifikacjach, a przede wszystkim obdarzonych powołaniem, prowadzi do trzymania się przestarzałych metod dydaktycznych. Programy oświatowo - wychowawcze zaledwie w nikłym stopniu uwzględniają treści dotyczące zjawisk patologii społecznej, w tym również narkomanii.
-Dzieci i młodzież używają narkotyków z tych samych powodów co dorośli. Po prostu z chęci odurzania się. Robią to w podobnych okolicznościach: na imprezach, przyjęciach, podczas spotkań z przyjaciółmi itp. Drugą grupę powodów stanowi ciekawość i nuda. Narkotyki są kuszącą perspektywą zaspokojenia potrzeby poszukiwania przygód, podniet, nowych doświadczeń, wypełnienia wolnego czasu itp. Wpływ grupy rówieśniczej to kolejne przyczyny. Jeśli koledzy i przyjaciele dziecka "biorą" narkotyki, to istnieje duże prawdopodobieństwo, że i dziecko po nie sięgnie. Ważne jest więc rozeznanie, z kim dziecko przebywa.
-Kolejne grupy przyczyn to ucieczka od problemów zewnętrznych (stres szkolny, ubóstwo, ograniczenie możliwości startu życiowego itp.) oraz problemów wewnętrznych (trudności emocjonalne, nieumiejętność rozwiązywania problemów itp.).
-Łatwowierność i naiwność dziecka, młodego człowieka jest często przyczyną kłopotów. Niezbędne jest wyrobienie w dziecku odruchu nieufności wobec nieznajomych, nawet tych, którzy wydają się być sympatyczni. Musicie zrobić wszystko, aby Wasze dzieci były bezpieczne na co dzień.
-Sygnały ostrzegawcze
+##### I. Trochę historii:
 
-Każdy nastolatek próbuje ukryć przed dorosłymi, że bierze narkotyki. Jednak nawet u tych, którzy zachowują dużą ostrożność, można rozpoznać pewne oznaki ich używania. Uzależnione lub nadużywające narkotyków dziecko zmienia się. Jeżeli dziecko, które się nie uczyło, byłó zamknięte w sobie, nagle zaczyna dużo mówić, energicznie się porusza, staje się odważne, czasem agresywne, to powinno nas to zastanowić. Albo dobry uczeń, zaczyna opuszczać lekcje, chodzić na wagary, traci zainteresowanie szkołą. W I fazie oznaki zażywania narkotyków nie są tak widoczne jak w fazie II. W fazie III można już mówić o symptomach choroby.
+  W ostatnich dziesięcioleciach w Polsce konieczne staje się podjęcie bardziej radykalnej walki ze zjawiskiem narkomanii. Siła narkotyku tkwi w mocy zawartych w nim trucizn oraz ich ujemnych oddziaływaniach na sferę fizyczną i psychiczną człowieka.Po wojnie narkomania nie rozprzestrzeniała się na taką skalę, jak w wielu krajach o wysokim stopniu rozwoju gospodarczego.Dopiero od drugiej połowy lat 60 zjawisko staje się coraz bardziej powszechne, głównie w środowiskach młodzieży. Początkowo przemilczane, zaczyna obejmować swym zasięgiem coraz większą liczbę młodych ludzi. Szerzy się nawet wśród uczniów szkół podstawowych.Potrzeba zainteresowania społeczeństwa narkomanią jest coraz większa z uwagi na konieczność zapobiegania jej. Leczenie jest bardzo trudne, a wyniki kuracji nie dają podstaw do zbytniego optymizmu. Zasadniczej rangi nabierają więc zagadnienia profilaktyki, w tym jak najszerszej edukacji dzieci, młodzieży, rodziców i wychowawców.
+
+##### II. Determinanty powstawania uzależnień:
+
+  Wśród czynników warunkujących powstawanie nałogów na wyróżnienie zasługują tzw. efekty farmakologiczne. Najważniejszym z nich jest zdolność niektórych środków do wywoływania subiektywnego uczucia zwanego euforią, czyli nadmiernie dobrego samopoczucia. Właściwość ta powoduje, iż w krótkim czasie może być osiągnięty względny komfort psychiczny w postaci odprężenia, spokoju i poczucia bezpieczeństwa. Efekt farmakologiczny zapewnia możliwość ucieczki od stresu i frustracji zrodzonej w warunkach współczesnego życia, przytłoczenia jego tempem, a przede wszystkim napięciami w stosunkach międzyludzkich. Właśnie omawiany efekt stanowi pozytywne wzmocnienie skłaniające do ponownego sięgnięcia po środek wywołujący powyższy stan.Czynnikiem usposabiającym do narkomanii, chociaż nie niezbędnym jej warunkiem, jest dewiacja osobowości.
+  Na wejście w nałóg są podatni osobnicy niedojrzali emocjonalnie i psychoseksualnie z niedorozwiniętym systemem wewnętrznej kontroli. Posiadają oni często wygórowane wymagania, oczekując natychmiastowego spełnienia swych potrzeb życiowych. Są to jednostki nadwrażliwe, o "kruchej osobowości", nie posiadające potrzeby dominacji, charakteryzujące się nieporadnością wobec trudności życiowych, od których starają się uciec, chociażby przez "zniekształcenie" rzeczywistości za pomocą środków odurzających.Istotną rolę w powstawaniu wszelkiego rodzaju uzależnień odgrywają czynniki społeczne. Środowiskowa atmosfera aprobaty lub potępienia stosowania środków odurzających może zwiększyć albo zmniejszyć liczbę osób narażonych na ryzyko wejścia w nałóg. Znaczącą rolę w rozprzestrzenianiu się tego typu dewiacji może mieć nacisk członków grup rówieśniczych oraz rozbieżność pomiędzy wartościami propagowanymi a rzeczywistością społeczną.
+Pośród głównych determinantów sprzyjających rozprzestrzenianiu się zjawiska narkomanii należy także wyróżnić wpływ czynnika rodzinnego. 
+  Jednym ze skutków industrializacji i urbanizacji jest niestabilność rodziny, zanikanie wpływu rodziców na dzieci oraz brak skutecznych form kontroli nad nimi. Rodzice coraz mniej czasu poświęcają dzieciom, a emancypacja zawodowa prowadzi bardzo często do zachwiania tradycyjnych autorytetów. Czymś normalnym staje się rozwód, rzadko spotykający się z dezaprobatą środowiska. W tych warunkach dzieci podatne są często na niepożądane wpływy środowiska rówieśniczego.
+Krytykowana przez starsze pokolenie młodzież obserwuje, że podstawowym, a niekiedy jedynym celem społeczeństwa, w którym żyje, jest dążenie do dobrobytu materialnego. Największą wartością jest pieniądz, bez względu na to, jaką drogą został zdobyty. 
+  Młodzi ludzie dążąc do potwierdzenia wartości preferowanych przez siebie, do uzyskania wyższych wrażeń estetycznych, sięgają między innymi po środki, które pozwalają im oderwać się od szarej rzeczywistości i przenieść w złudny wprawdzie świat szczęścia i radości.Rodzicom wydaje się niejednokrotnie, że brak miłości do dzieci można zrekompensować przy pomocy drogich prezentów. Ale przeważnie okazuje się, iż pieniądze zdobywane kosztem czasu, który należało poświęcić dziecku, potrafią przynieść szkody nie do odrobienia. W tworzeniu warunków do rozprzestrzeniania się nałogów nic pozostaje bez winy również szkoła Obszerne programy, nic odpowiadające poziomowi intelektualnemu dzieci i młodzieży, realizowane tradycyjnymi metodami, są często przyczyną niepowodzeń szkolnych. Brak nauczycieli o odpowiednich kwalifikacjach, a przede wszystkim obdarzonych powołaniem, prowadzi do trzymania się przestarzałych metod dydaktycznych. Programy oświatowo - wychowawcze zaledwie w nikłym stopniu uwzględniają treści dotyczące zjawisk patologii społecznej, w tym również narkomanii.
+  Dzieci i młodzież używają narkotyków z tych samych powodów co dorośli. Po prostu z chęci odurzania się. Robią to w podobnych okolicznościach: na imprezach, przyjęciach, podczas spotkań z przyjaciółmi itp. Drugą grupę powodów stanowi ciekawość i nuda. Narkotyki są kuszącą perspektywą zaspokojenia potrzeby poszukiwania przygód, podniet, nowych doświadczeń, wypełnienia wolnego czasu itp. Wpływ grupy rówieśniczej to kolejne przyczyny. Jeśli koledzy i przyjaciele dziecka "biorą" narkotyki, to istnieje duże prawdopodobieństwo, że i dziecko po nie sięgnie. Ważne jest więc rozeznanie, z kim dziecko przebywa.
+  Kolejne grupy przyczyn to ucieczka od problemów zewnętrznych (stres szkolny, ubóstwo, ograniczenie możliwości startu życiowego itp.) oraz problemów wewnętrznych (trudności emocjonalne, nieumiejętność rozwiązywania problemów itp.).
+Łatwowierność i naiwność dziecka, młodego człowieka jest często przyczyną kłopotów. Niezbędne jest wyrobienie w dziecku odruchu nieufności wobec nieznajomych, nawet tych, którzy wydają się być sympatyczni. Musicie zrobić wszystko, aby Wasze dzieci były bezpieczne na co dzień.
+
+##### III. Sygnały ostrzegawcze:
+
+  Każdy nastolatek próbuje ukryć przed dorosłymi, że bierze narkotyki. Jednak nawet u tych, którzy zachowują dużą ostrożność, można rozpoznać pewne oznaki ich używania. Uzależnione lub nadużywające narkotyków dziecko zmienia się. Jeżeli dziecko, które się nie uczyło, byłó zamknięte w sobie, nagle zaczyna dużo mówić, energicznie się porusza, staje się odważne, czasem agresywne, to powinno nas to zastanowić. Albo dobry uczeń, zaczyna opuszczać lekcje, chodzić na wagary, traci zainteresowanie szkołą. 
+  - W I fazie oznaki zażywania narkotyków nie są tak widoczne jak w fazie II. W fazie III można już mówić o symptomach choroby.
 1.Im wcześniej zauważysz zagrożenie i zaczniesz działać, tym skuteczniejsza będzie twoja pomoc.
 2.Im mniej przykrych konsekwencji doświadcza nastolatek w związku z braniem, tym trudniej będzie go przekonać, że powinien przestać.
 3.Każdy sygnał, który dostrzeżesz, może być wierzchołkiem góry lodowej – tylko specjalista jest w stanie postawić trafną diagnozę skali problemu i doradzić, jak interweniować.
 4.Różne niepokojące zachowania często nie mają związku z używaniem środków odurzających. Mogą być następstwem takich problemów, jak kłopoty rodzinne lub szkolne, zranione uczucia, niepowodzenia miłosne, nadwrażliwość emocjonalna, i wiele innych, a żadnego nie można zbagatelizować.
-Faza I – nieliczne i przypadkowe sygnały
+
+###### Faza I – nieliczne i przypadkowe sygnały
+
 •	Możesz zauważyć u dziecka coś, co sprawi, że pomyślisz „coś z nim jest, może będzie chory”, „nigdy się tak nie zachowywał”
 •	Dziecko może bagatelizować zagrożenia związane z używaniem środków odurzających lub stawać w obronie tych, którzy je biorą.
 •	Poza tym zauważysz niewiele, chyba, że przyłapiesz dziecko na gorącym uczynku lub pod wpływem środka psychoaktywnego, a wtedy możesz:
@@ -33,8 +36,10 @@ o	Poczuć zapach papierosów, chemikaliów, marihuany (słodkawy, przypominając
 o	Zaobserwować skutki upicia alkoholem;
 o	Dostrzec ślady chemikaliów lub tytoniu na ubraniu lub skórze;
 o	Stanąć przed koniecznością udzielenia dziecku pomocy w związku z wypadkiem lub urazem odniesionym w stanie odurzenia.
-Faza II – dążenie do przyjemności lub unikanie przykrości ( na ogół liczne i niepokojące sygnały)
+###### Faza II – dążenie do przyjemności lub unikanie przykrości ( na ogół liczne i niepokojące sygnały)
+
 U nastolatków, którzy biorą środki odurzające ze względu na związane z tym przyjemności (itp. towarzyskie), sygnały ostrzegawcze mogą być bardziej nasilone. Do sygnałów charakterystycznych dla I fazy mogą dołączyć kolejne, które łatwiej jest uchwycić i określić.
+
 •	Utrata zainteresowań, aspiracji, inicjatywy (w szkole może to się objawiać pogorszeniem ocen, nie odrabianiem lekcji, spóźnieniami, wagarowaniem, konfliktami z nauczycielami, a poza szkołą – rezygnacją z dotychczasowego hobby, niechęcią do zajęć pozalekcyjnych i praktyk religijnych)
 •	Izolowanie się od reszty domowników (itp. zamykanie się w pokoju), coraz częstsze nieobecności w domu, spóźnianie się, wychodzenie bez podania przyczyny po co z kim, unikanie rozmów z rodzicami, pokrętne tłumaczenia i kłamstwa;
 •	Zmiana przyjaciół, gdy dotychczasowych przyjaciół zastępują nowi, często starsi, których dziecko nie przedstawia rodzicom;
@@ -44,7 +49,9 @@ U wszystkich nastolatków w II fazie używania wyraźnymi wskazówkami istnienia
 •	Zmiany w zachowaniu, rozregulowanie rytmu dnia i nocy, okresy wzmożonego ożywienia przeplatane zmęczeniem i ospałością (możliwość przysypiania na lekcjach), nadmierny apetyt lub brak apetytu, nowy styl ubierania się i fryzury, posługiwanie się slangiem, częste wietrzenie pokoju, używanie kadzidełek i odświeżaczy powietrza;
 •	Oznaki fizyczne itp. zaczerwienione, łzawiące oczy, nienaturalnie rozszerzone lub zwężone źrenice, pogorszenie stanu skóry (krosty, zaczerwienienia)
 •	Narkotyki lub przybory do ich używania, które mogą się znajdować wśród rzeczy lub w pokoju dziecka (mogą to być itp. kawałki opalonej folii aluminiowej, pudełeczko zawierające rurki, szkiełka lub lusterka, małe foliowe torebeczki z jakimś proszkiem, tabletkami lub suszem – schowane w wymyślnej skrytce lub leżące na wierzchu „dla zmyłki” w niewinnie wyglądającej okładce, kosmetyczce itp.
-Faza III – uzależnienie – sygnały wyraźnie widoczne i groźne
+
+###### Faza III – uzależnienie – sygnały wyraźnie widoczne i groźne
+
 •	Obniżenie nastroju wynikające ze świadomości uwikłania w branie narkotyków i bycia w pułapce: poczucie winy, bezradności, pokrzywdzenia, lęki, brak zaufania do ludzi (może być obsesyjny i paranoiczny), możliwe myśli samobójcze;
 •	Łamanie prawa, wynoszenie rzeczy z domu,, kradzieże bójki, wandalizm. Możliwy jest również handel narkotykami lub prostytucja w celu zdobycia pieniędzy;
 •	Pogorszenie stanu zdrowia, częste przeziębienia, katary, kaszel, bóle głowy, gardła, mięśni, krwawienie z nosa, spadek masy ciała, zawroty głowy, przypadki utraty przytomności, samookaleczenia, zaburzenia pamięci i toku myślenia;
@@ -64,11 +71,14 @@ Podczas takiej rozmowy trzeba powiedzieć, że:
 •	spośród dzieci, które zaczęły palić, 25% kontynuuje ten nałóg także po 20 latach: wśród narkomanów jest od 85% do 90% osób palących papierosy. Natomiast osoby, które w dzieciństwie i młodości nie dały się skusić papierosom, prawdopodobnie już nigdy nie staną się palaczami, 
 •	są ludzie bardziej i mniej podatni na uzależnienie, nic ma jednak sposobu, by taką rzecz z góry przewidzieć, 
 •	jedyną gwarancją uniknięcia nałogu jest niepodejmowanie żadnych prób z żadnym ze środków.
+
 Już w przedszkolu należy dziecku wyjaśnić, dlaczego jego ciało potrzebuje rzeczy dobrych. Należy je przekonać, w jaki sposób zdrowa żywność zapewnia silę i zdrowie. Ponieważ w otoczeniu dziecka znajduje się wiele leków oraz artykułów gospodarstwa domowego, które są trujące i niebezpieczne dla zdrowia, dobrze jest pociechę o tym poinformować.
-W klasach najmłodszych (I - III) o alkoholu i narkotykach powinno się mówić operując przykładami często obserwowanymi w środowisku. W trakcie tej edukacji dziecko powinno zdobyć następujące wiadomości:
+
+Wklasach najmłodszych (I - III) o alkoholu i narkotykach powinno się mówić operując przykładami często obserwowanymi w środowisku. W trakcie tej edukacji dziecko powinno zdobyć następujące wiadomości:
 •	co to są narkotyki, dlaczego są zakazane prawem, jak wyglądają i dlaczego są szkodliwe, 
 •	że zakaz dotyczący alkoholu i narkotyków obowiązuje ją czy jego w domu i w szkole, 
 •	dlaczego tak ważne jest unikanie nie znanych sobie i potencjalnie niebezpiecznych przedmiotów, opakowań i substancji.
+
 W klasach IV - VI wiele dzieci ma skłonności do naśladownictwa rówieśników cieszących się popularnością. Może to nieść za sobą niebezpieczeństwo zainteresowania się narkotykami. Sprawą pierwszoplanową jest wpajanie dziecku umiejętności bycia niezależnym i mówienia innym "nie".
 Pod koniec klasy szóstej dziecko powinno:
 •	samo unikać "balang" i imprez, gdzie mogą pojawić się narkotyki, 
@@ -77,13 +87,15 @@ Pod koniec klasy szóstej dziecko powinno:
 •	znać długo- oraz krótkotrwale objawy i następstwa konsumpcji, 
 •	wiedzieć o szkodliwych skutkach działania narkotyków na organizm, zwłaszcza w okresie rozwojowym, 
 •	wiedzieć, Jałcie konsekwencje wynikają z picia alkoholu i zażywania nielegalnych środków dla samego konsumenta, jego rodziny i społeczeństwa
-.
-W klasach VII - VIII - rodzice winni znać otoczenie, w którym obraca się dziecko. W miarę możliwości nawiązywać współpracę z rodzicami przyjaciół dziecka. W dalszym ciągu kontynuować wyrabianie motywacji i umiejętności odmawiania.
+
+
+W klasach gimnazjalnych - rodzice winni znać otoczenie, w którym obraca się dziecko. W miarę możliwości nawiązywać współpracę z rodzicami przyjaciół dziecka. W dalszym ciągu kontynuować wyrabianie motywacji i umiejętności odmawiania.
 W tym okresie dziecko poznaje:
 •	kolejne etapy uzależnienia narkotycznego, 
 •	jak narkotyki oddziałują na układ krążenia, oddechowy, system nerwowy, zdolności reprodukcyjne, 
-•	w jaki sposób narkotyki upośledzają koordynację psychoruchową, obniżając przez to sprawność za kierownicą i w sporcie, 
+•	w jaki sposób narkotyki upośledzają koordynację psychoruchową, obniżając przez to sprawność za kierownicą i w sporcie,
 •	historię przypadków alkoholizmu lub innych uzależnień w rodzinie, jeśli takowe były.
+
 W szkole średniej młodzież winna poznać:
 •	doraźne i dalekosiężne skutki zdrowotne używania określonych narkotyków, 
 •	groźne dla życia następstwa łączenia narkotyków, 
@@ -93,17 +105,20 @@ W szkole średniej młodzież winna poznać:
 •	niesprawność w prowadzeniu pojazdów i obsługiwaniu maszyn w stanic nietrzeźwości bądź odurzenia i ryzyko z tym związane, 
 •	następstwa społeczne uzależnień; 
 •	zakres działania i możliwości lokalnych ośrodków pomocy osobom uzależnionym.
-Telefony zaufania dotyczące spraw narkomanii
-	Katowice - Towarzystwo Rodzin i Przyjaciół Dzieci Uzależnionych "Powrót z U" tel. 153-83-46 ( pon., śr., w godz. ! 1:00 do 13 00; wt., czw., w godz.12:00 do 14:00) 
-	Tarnowskie Góry - Stowarzyszenie Przeciwdziałania Uzależnieniom Dzieci i Młodzieży "Dominia": tel.185-37-41 (codziennie w godz. 8:00 do 15:00 oraz dyżur w pon. w godz. 15:00 do 17:00) 
-	Żory - Miejski Ośrodek Pomocy Społecznej 44-240 Żory. Os. Księcia Władysława, tel. 34-24-12 godziny pracy: 7:30 do 15:30
 
-Poradnie rodzinne, Poradnie Psychologiczno - Pedagogiczne 
+##### IV. Telefony zaufania dotyczące spraw narkomanii:
+
+- Katowice - Towarzystwo Rodzin i Przyjaciół Dzieci Uzależnionych "Powrót z U" tel. 153-83-46 ( pon., śr., w godz. ! 1:00 do 13 00; wt., czw., w godz.12:00 do 14:00) 
+- Tarnowskie Góry - Stowarzyszenie Przeciwdziałania Uzależnieniom Dzieci i Młodzieży "Dominia": tel.185-37-41 (codziennie w godz. 8:00 do 15:00 oraz dyżur w pon. w godz. 15:00 do 17:00) 
+- Żory - Miejski Ośrodek Pomocy Społecznej 44-240 Żory. Os. Księcia Władysława, tel. 34-24-12 godziny pracy: 7:30 do 15:30
+- Poradnie rodzinne, Poradnie Psychologiczno - Pedagogiczne 
 Pomoc dla osób dorosłych i dzieci:
 •	prawno - administracyjna 
 •	materialna 
 •	kierowanie do odpowiednich placówek.
-Bibliografia
+
+##### V. Bibliografia:
+
 1.	Akoliński S., Falewicz J. K., Źródła patologii społecznej i problemy socjalizacji młodzieży. Warszawa 1984 
 2.	Akoliński S., Od A do Z o pijaństwie. Warszawa 1985 
 3.	Alapin B., Alkohol i toksykomania, Warszawa 1968 
@@ -145,76 +160,7 @@ linki
 [1]: (http://pedagogika-psychologia.blog.pl/2013/09/10/teoretyczna-pomoc-dla-dda-cz-ii/)
 
 
-
-
-
-
-
-
-
-
-3. Konspekt pedagogizacji rodziców: ASERTYWNOŚĆ wobec dzieci
-
-1. Przedstawienie prezentacji multimedialnej „Asertywność wobec dzieci”.
-
-2. Definicja:  „Asertywność” to pełne, bezpośrednie, stanowcze i spokojne wyrażanie swoich uczuć, poglądów i postaw wobec innych osób, w sposób respektujący uczucia, poglądy i postawy tych osób. 
-
-3 Rodzaje zachowań rodziców wobec dzieci:
-Zachowanie rodziców w stosunku do dzieci może być:
-o	uległe (bierne) 
-o	nieasertywne (agresywne)
-o	asertywne
-4. Zachowanie rodziców wobec dziecka powinno być oparte na:
-o	szczerości  i otwartości, konkretnym i bezpośrednim sposobie bycia,  spokojnym i naturalnym odnoszeniu się do dziecka,
-o	umiejętności słuchania ,
-o	 chęci zrozumienia dziecka,
-o	traktowaniu dziecka z szacunkiem.
-5. W stosunku do dzieci nie wolno nam:
-o	ukrywać swoich uczuć,
-o	„owijać w bawełnę”,
-o	„chować się za czyimiś plecami”(np. współmałżonka),
-o	poniżać i obrażać dziecka, znęcać się fizycznie i psychicznie nad dzieckiem.
-
-6. Jeżeli musisz dziecku odmówić:
-o	zacznij od wyraźnego stwierdzenia „nie”,podaj krótką informację o swoich zamiarach,krótko wyjaśnij powód swojej odmowy.7.Odmawiając nie tłumacz się i nie usprawiedliwiaj nadmiernie 
-o	nie sprawiaj wrażenia, że zmienisz zdanie,
-o	nie atakuj i nie krzycz na dziecko.
-8. Jeżeli denerwuje Cię zachowanie dziecka:
-etap 1: Zacznij od poinformowania dziecka o tym, co Ci przeszkadza w jego postępowaniu wobec Ciebie. Zrób to jak najszybciej, aby nie dopuścić do nagromadzenia gniewu. 
-etap 2: Jeżeli irytująca Cię sytuacja nie ulega zmianie, wyraź swoje uczucia a nawet gniew, ale bez ranienia dziecka.
-
-9. Jeżeli chcesz okazać dziecku uczucia pozytywne:
-rada 1: mów w sposób otwarty i bezpośredni to co czujesz,
-rada 2: wyraź swoje uczucia w sposób osobisty,
-rada 3: używaj komunikatów typu „ja”.
-Komunikat typu „ja”- to informacja o moich uczuciach, myślach, zamiarach. Ja jestem podmiotem.
-
-10. Jak wymieniać poglądy
-Jeżeli na dany temat masz inną opinię od dziecka:
-wskazówka 1: ujawnij rozbieżność opinii,
-wskazówka 2: streść krótko, ale bez złośliwości  opinię dziecka i zaprezentuj własną,
-wskazówka 3: jeżeli nie rozumiesz stanowiska dziecka dopytaj go o szczegóły dotyczące jego opinii,
-wskazówka 4: wymień poglądy, pamiętając o tolerancyjnym podejściu do innego punktu widzenia
-prezentując swoje opinie nie przedstawiaj ich tak jakby   były faktami,
-nie wymieniaj poglądów w sprawach, w których nie stać Cię na tolerancyjne podejście do innego punktu widzenia ,
- nie atakuj dziecka za jego poglądy, lecz koncentruj się na problemie.
-Nie ma gotowej „recepty” na dobre wychowanie dzieci, bo każde dziecko jest inne.
-
-Warto jednak pamiętać o tym, aby:
-•	Szanować dziecko i wymagać szacunku dla innych.
-•	Codziennie spędzać trochę czasu ze swoim dzieckiem.
-•	Nie gderać zbyt często.
-•	Nie zbywać pytań dziecka byle czym. 
-•	Raczej nagradzać, niż karać i nigdy nie karać w sposób brutalny fizycznie oraz przy innych.
-•	Być konsekwentnym w egzekwowaniu wymagań. Nie dawać sprzecznych lub niejasnych poleceń.Nie rozpieszczać nadmiernie dzieci dając wszystko, co im się zamarzy.
-•	Nie dominować nadmiernie, pozwalać dziecku rozwijać się i popełniać błędy.Dawać dobry przykład.Być przyjacielem dziecka, a nie jego wrogiem.
-•	Kochać i okazywać swoje uczucia dziecku.
-•	Nie udawać doskonałego i nieomylnego. Umieć przyznać się do błędu oraz nie bać się słowa przepraszam”.
-•	Dawać dziecku czas do namysłu, kiedy ma się do czegoś ustosunkować.
-•	Nie ranić poczucia  własnej wartości dziecka mówiąc, że jest złe lub głupie, bo zły lub głupi może być tylko jego uczynek.
-Jeżeli traktujesz swoje dziecko jak własność lub niewolnika, nie zdziw się kiedy zobaczysz, że tak samo traktuje innych.
-
-
+załączniki:
 
 
 4. Sztuka porozumiewania się z dzieckiem
