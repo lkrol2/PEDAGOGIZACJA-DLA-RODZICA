@@ -200,7 +200,8 @@ Rady na temat organizacji warsztatów
 
 
 Przydatne linki 
-
+[PROGRAM PROFILAKTYCZNY PARASOL][14]
+[14]: http://slid.es/lkrol2/parasol
 [PEDAGOGIZACJA RODZICÓW][1]
 [1]: http://edukator.edux.pl/pedagogizacja-rodzicow.php
 [POMOCE DYDAKTYCZNE][11]
