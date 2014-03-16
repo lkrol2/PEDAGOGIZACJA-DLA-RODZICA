@@ -1,7 +1,7 @@
 ##PEDAGOGIZACJA-DLA-RODZICA##
 =========================
-####"Rodzice jako pierwsi nauczyciele swoich dzieci ponoszą szczególną odpowiedzialność za ich edukację, zaś edukacja szkolna ma wspierać domową, nie ją zastępować.".
-######frag. Statutu Europejskiego Stowarzyszenia Rodziców
+####**"Rodzice jako pierwsi nauczyciele swoich dzieci ponoszą szczególną odpowiedzialność za ich edukację, zaś edukacja szkolna ma wspierać domową, nie ją zastępować."**.
+######_frag. Statutu Europejskiego Stowarzyszenia Rodziców_
 ![Rodzice] (http://www.zs.gromnik.pl/publikacje/images/stories/f_w_15688_62e90.jpg)
 ### I. Forma współpracy szkoły ze środowiskiem rodzinnym.
 
@@ -16,16 +16,17 @@
 ### II. Zasady współdziałania nauczycieli i rodziców:
 ![Mądrzy Rodzice] (https://encrypted-tbn3.gstatic.com/images?q=tbn:ANd9GcTwhX3ceuX7t23HMbqauItvyw5EQWuY3abgzfz06ud68MPIsPyj)
 
-  W wychowaniu istnieją obszary wspólne, gdzie dokładna informacja może być bardzo pomocna obu stronom w rozwiązywaniu problemów wychowawczych, a w efekcie we wspieraniu rozwoju dziecka. Nauczyciel-wychowawca i rodzic powinni być w szkole partnerami , mającymi prawa i obowiązki, a podstawą ich współpracy winno być wcześniej  wspomniane zaufanie, akceptacja i rzetelna informacja. Warunkiem poprawnych stosunków jest też aktywność i systematyczność. Należy tak organizować współpracę z domem by odbywała się ona zgodnie z przyjętymi powszechnie  zasadami współdziałania nauczycieli i rodziców: 
-•zasadą pozytywnej motywacji, gdyż nieodzownym warunkiem skutecznego współdziałania wychowawcy i rodziców jest dobrowolny i chętny w nim udział.
+W wychowaniu istnieją obszary wspólne, gdzie dokładna informacja może być bardzo pomocna obu stronom w rozwiązywaniu problemów wychowawczych, a w efekcie we wspieraniu rozwoju dziecka. Nauczyciel-wychowawca i rodzic powinni być w szkole partnerami , mającymi prawa i obowiązki, a podstawą ich współpracy winno być wcześniej  wspomniane zaufanie, akceptacja i rzetelna informacja. Warunkiem poprawnych stosunków jest też aktywność i systematyczność. Należy tak organizować współpracę z domem by odbywała się ona zgodnie z przyjętymi powszechnie  zasadami współdziałania nauczycieli i rodziców:
 
-•zasada partnerstwa, postulująca równorzędne prawa i obowiązki wychowawcy i rodziców, aby żadna ze stron nie czuła się mniej wartościowa od drugiej.
+___•zasadą pozytywnej motywacji___,<br>gdyż nieodzownym warunkiem skutecznego współdziałania wychowawcy i rodziców jest dobrowolny i chętny w nim udział<br>
 
-•zasada wielostronnego przepływu informacji, zakładająca konieczność uruchomienia różnych źródeł porozumiewania między nauczycielem a rodzicami - wielokierunkową wymianę opinii zarówno między nauczycielami a rodzicami, jak i samymi nauczycielami i samymi rodzicami.
+___•zasada partnerstwa___, <br>postulująca równorzędne prawa i obowiązki wychowawcy i rodziców, aby żadna ze stron nie czuła się mniej wartościowa od drugiej.<br>
 
-•zasada jedności oddziaływań, przypominająca o konieczności realizowania przez szkołę i rodzinę zgodnych ze sobą celów wychowania.
+___•zasada wielostronnego przepływu informacji___, <br>zakładająca konieczność uruchomienia różnych źródeł porozumiewania między nauczycielem a rodzicami - wielokierunkową wymianę opinii zarówno między nauczycielami a rodzicami, jak i samymi nauczycielami i samymi rodzicami.<br>
 
-•zasada aktywnej i systematycznej współpracy, uwydatniająca potrzebę czynnego i stałego zaangażowania nauczycieli i rodziców w wykonywanie zadań wypływających ze współpracy.
+___•zasada jedności oddziaływań___, <br>przypominająca o konieczności realizowania przez szkołę i rodzinę zgodnych ze sobą celów wychowania.<br>
+
+___•zasada aktywnej i systematycznej współpracy___, <br>uwydatniająca potrzebę czynnego i stałego zaangażowania nauczycieli i rodziców w wykonywanie zadań wypływających ze współpracy.<br>
 
 
 ### III. Wskazówki dla nauczyciela, które warto uwzględnić w kontaktach z rodzicami:
