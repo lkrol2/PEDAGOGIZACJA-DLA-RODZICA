@@ -1,5 +1,5 @@
 ##PEDAGOGIZACJA-DLA-RODZICA##
-=========================
+=========================-
 ####**"Rodzice jako pierwsi nauczyciele swoich dzieci ponoszą szczególną odpowiedzialność za ich edukację, zaś edukacja szkolna ma wspierać domową, nie ją zastępować."**.
 ######_frag. Statutu Europejskiego Stowarzyszenia Rodziców_
 ![Rodzice] (http://www.zs.gromnik.pl/publikacje/images/stories/f_w_15688_62e90.jpg)
